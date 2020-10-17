@@ -7,6 +7,11 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 <br/>
 
+## Quote of the day
+
+> abc
+>  — author
+
 ## Currently Working on  
   
 
@@ -22,10 +27,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 <br/>  
 
 
-## My Skill Set  
+## Skills 
 <table><tr><td valign="top" width="50%">
-
-
 
 ### Languages  
 <div align="center">  
