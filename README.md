@@ -9,8 +9,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 ## Quote of the day
 
-> abc
->  — author
+> There&#39;s such a thin line between winning and losing.
+>  — John R. Tunis
 
 ## Currently Working on  
   

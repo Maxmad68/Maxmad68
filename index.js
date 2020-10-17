@@ -1,30 +1,37 @@
 // index.js
 const Mustache = require('mustache');
+const request = require('request');
 const fs = require('fs');
 const MUSTACHE_MAIN_DIR = './main.mustache';
-/**
-  * DATA is the object that contains all
-  * the data to be provided to Mustache
-  * Notice the "name" and "date" property.
-*/
-let DATA = {
-  name: 'Thomas',
-  date: new Date().toLocaleDateString('en-GB', {
-    weekday: 'long',
-    month: 'long',
-    day: 'numeric',
-    hour: 'numeric',
-    minute: 'numeric',
-    timeZoneName: 'short',
-    timeZone: 'Europe/Stockholm',
-  }),
+
+
+var  options = {
+  url: 'https://quotes.rest/qod?language=en',
+  json: true
 };
-/**
-  * A - We open 'main.mustache'
-  * B - We ask Mustache to render our file with the data
-  * C - We create a README.md file with the generated output
-  */
-function generateReadMe() {
+
+
+request(options, function(error, response, body){
+  if (error) {
+    generateReadMe("Err", "or");
+  } else {
+    console.log(body);
+    quote = body["contents"]["quotes"][0]["quote"];
+    author = body["contents"]["quotes"][0]["author"];
+    generateReadMe(quote, author)
+  }
+});
+
+
+
+function generateReadMe(quote, author) {
+  
+  let DATA = {
+    quote: quote,
+    quoteauthor: author
+  };
+  
+  
   fs.readFile(MUSTACHE_MAIN_DIR, (err, data) =>  {
     if (err) throw err;
     const output = Mustache.render(data.toString(), DATA);
