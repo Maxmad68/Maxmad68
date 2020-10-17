@@ -1,4 +1,4 @@
-name: README buildT2
+name: Build dynamic README
 
 on:
   workflow_dispatch:
