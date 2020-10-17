@@ -24,6 +24,6 @@ jobs:
       - name: Generate README file
         run: node index.js
       - name: Commit and Push new README.md to the repository
-        uses: Maxmad68/Maxmad68@master
+        uses: Maxmad68/Maxmad68@main
         env:
           GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
