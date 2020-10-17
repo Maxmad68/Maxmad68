@@ -5,11 +5,13 @@ I'm Maxime, an IT student at EPITA and iOS developer.👨‍💻
 
 Aviation enthusiast, and pilot in my free time ✈️.
 
-<br/>
-
 ## Quote of the day
 
-Test
+> There&#39;s such a thin line between winning and losing.
+>  — John R. Tunis
+
+<br/>
+
 
 ## Currently Working on  
   
