@@ -8,4 +8,4 @@ Test2
 
 End
 
-<a onclick="document.getElementById("user-content-box").innerHTML = 'Abc';" href="javascript:void(0);">Click</a>
+<a onclick="document.getElementById('"user-content-box'").innerHTML = 'Abc';" href="javascript:void(0);">Click</a>
