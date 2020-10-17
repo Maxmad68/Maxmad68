@@ -1,7 +1,8 @@
 name: Build dynamic README
 
 on:
-  workflow_dispatch:
+  schedule:
+    - cron: "0 2 * *"
 
 jobs:
   build:
