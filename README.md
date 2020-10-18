@@ -7,8 +7,11 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> There&#39;s such a thin line between winning and losing.
->  — John R. Tunis
+> One does not accumulate but eliminate .
+It is not daily increase but daily
+decrease. The height of cultivation
+always runs to simplicity.
+>  — Bruce Lee
 
 
 ## Currently Working on  
