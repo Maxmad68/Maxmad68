@@ -7,11 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> One does not accumulate but eliminate .
-It is not daily increase but daily
-decrease. The height of cultivation
-always runs to simplicity.
->  — Bruce Lee
+> You defeated me But you won&#39;t defeat me again Because you have grown all you can grow.... but I am still growing (about Mount Everest).
+>  — Edmund Hillary
 
 
 ## Currently Working on  
