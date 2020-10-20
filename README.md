@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You defeated me But you won&#39;t defeat me again Because you have grown all you can grow.... but I am still growing (about Mount Everest).
->  — Edmund Hillary
+> When a man is an upright contender, only real people are bound to be around; but if he is a downright pretender, then fake people surround and always abound to be found.
+>  — Anuj Somany
 
 
 ## Currently Working on  
