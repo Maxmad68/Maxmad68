@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.
->  — Jean Shinoda Bolen
+> We hold ourselves back in ways both big and small, by lacking self-confidence, by not raising our hands, and by pulling back when we should be leaning in.
+>  — Sheryl Sandberg
 
 
 ## Currently Working on  
