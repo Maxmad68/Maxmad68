@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> We hold ourselves back in ways both big and small, by lacking self-confidence, by not raising our hands, and by pulling back when we should be leaning in.
->  — Sheryl Sandberg
+> Named must your fear be before banish it you can.
+>  — Yoda
 
 
 ## Currently Working on  
