@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Named must your fear be before banish it you can.
->  — Yoda
+> Man needs his difficulties because they are necessary to enjoy success.
+>  — A. P. J. Abdul Kalam
 
 
 ## Currently Working on  
