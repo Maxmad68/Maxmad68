@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Man needs his difficulties because they are necessary to enjoy success.
->  — A. P. J. Abdul Kalam
+> Keep a positive mind. Remember, a failed attempt doesn&#39;t make you a failure—giving up does.
+>  — Lorii Myers
 
 
 ## Currently Working on  
