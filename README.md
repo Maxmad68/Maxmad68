@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you cannot do great things, do small things in a great way.
->  — Napoleon Hill
+> Don&#39;t be tempted to break momentum—work through it.
+>  — Lorii Myers
 
 
 ## Currently Working on  
