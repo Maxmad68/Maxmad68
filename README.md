@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Don&#39;t be tempted to break momentum—work through it.
->  — Lorii Myers
+> Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.
+>  — Zaha Hadid
 
 
 ## Currently Working on  
