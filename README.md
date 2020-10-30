@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.
->  — Zaha Hadid
+> Remember that you are very special,no one can play your role better than you.
+>  — Damayanti Patra
 
 
 ## Currently Working on  
