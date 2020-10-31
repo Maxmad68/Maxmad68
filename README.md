@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Remember that you are very special,no one can play your role better than you.
->  — Damayanti Patra
+> The free soul is rare, but you know it when you see it - basically because you feel good, very good, when you are near or with them.
+>  — Charles Bukowski
 
 
 ## Currently Working on  
