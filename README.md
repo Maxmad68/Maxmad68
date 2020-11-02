@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The journey of a thousand miles begins with one step.
->  — Lao Tzu
+> If you like what you do, and you’re lucky enough to be good at it, do it for that reason.
+>  — Phil Grimshaw
 
 
 ## Currently Working on  
