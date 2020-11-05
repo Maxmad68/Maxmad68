@@ -61,6 +61,14 @@ Aviation enthusiast, and pilot in my free time ✈️.
     <td><b>C#</b></td>
   </tr>
   <tr>
+    <td><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/java-original-wordmark.svg" alt="MySQL" height="50" /></td>
+    <td><b>Java</b></td>
+  </tr>
+  <tr>
+    <td><img style="margin: 10px" src="https://upload.wikimedia.org/wikipedia/commons/thumb/c/cf/Lua-Logo.svg/1200px-Lua-Logo.svg.png" alt="Lua" height="50" /></td>
+    <td><b>Lua</b></td>
+  </tr>
+  <tr>
     <td><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/mysql-original-wordmark.svg" alt="MySQL" height="50" /></td>
     <td><b>MySQL</b></td>
   </tr>
