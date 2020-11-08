@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> There is no one right way. Just figure out what works for you!
->  — Lorii Myers
+> If we ever stop thinking about the person we want to become, we stop learning and taking risks.
+>  — Sally Blount
 
 
 ## Currently Working on  
