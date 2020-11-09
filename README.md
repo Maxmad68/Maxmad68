@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If we ever stop thinking about the person we want to become, we stop learning and taking risks.
->  — Sally Blount
+> Things are not bad in themselves, but our cowardice makes them so.
+>  — Michel de Montaigne
 
 
 ## Currently Working on  
