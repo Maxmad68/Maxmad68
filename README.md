@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Things are not bad in themselves, but our cowardice makes them so.
->  — Michel de Montaigne
+> Regardless of how you feel inside, always try to look like a winner. Even if you are behind, a sustained look of control and confidence can give you a mental edge that results in victory.
+>  — Arthur Ashe
 
 
 ## Currently Working on  
