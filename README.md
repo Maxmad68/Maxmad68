@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> When you win, say nothing. When you lose, say less.
->  — Paul Brown
+> You should never view your challenges as a disadvantage. Instead, it&#39;s important for you to understand that your experience facing and overcoming adversity is actually one of your biggest advantages.
+>  — Michelle Obama
 
 
 ## Currently Working on  
