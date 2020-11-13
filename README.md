@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You should never view your challenges as a disadvantage. Instead, it&#39;s important for you to understand that your experience facing and overcoming adversity is actually one of your biggest advantages.
->  — Michelle Obama
+> The tennis ball doesn&#39;t know how old I am. The ball doesn&#39;t know if I&#39;m a man or a woman or if I come from a communist country or not. Sport has always broken down these barriers.
+>  — Martina Navratilova
 
 
 ## Currently Working on  
