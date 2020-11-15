@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Don&#39;t be afraid of losing, be afraid of playing a game and not learning something.
->  — Dan Heisman
+> If you get up in the morning and think the future is going to be better, it is a bright day. Otherwise, it&#39;s not.
+>  — Elon Musk
 
 
 ## Currently Working on  
