@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you get up in the morning and think the future is going to be better, it is a bright day. Otherwise, it&#39;s not.
->  — Elon Musk
+> The last time doesn&#39;t exist. It&#39;s only this time. And everything is going to be different this time. There&#39;s only now.
+>  — Bill Murray
 
 
 ## Currently Working on  
