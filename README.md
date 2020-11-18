@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Excellence prospers in the absence of excuses.
->  — Lorii Myers
+> Go confidently in the direction of your dreams. Live the life you&#39;ve imagined. As you simplify your life, the laws of the universe will be simpler.
+>  — Henry David Thoreau
 
 
 ## Currently Working on  
