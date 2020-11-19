@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Go confidently in the direction of your dreams. Live the life you&#39;ve imagined. As you simplify your life, the laws of the universe will be simpler.
->  — Henry David Thoreau
+> Every day you have a choice to be honest or deceptive. If you commit to telling the truth, you will win. You&#39;ll win more trust, you&#39;ll win more business, and you&#39;ll win more peace of mind. You&#39;ll break the system and be even more successful.
+>  — Dale Patridge
 
 
 ## Currently Working on  
