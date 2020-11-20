@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Every day you have a choice to be honest or deceptive. If you commit to telling the truth, you will win. You&#39;ll win more trust, you&#39;ll win more business, and you&#39;ll win more peace of mind. You&#39;ll break the system and be even more successful.
->  — Dale Patridge
+> Twenty years from now you will be more disappointed by the things that you didn&#39;t do than by the ones you did do. So throw off the bowlines. Sail away from the safe harbor. Catch the trade winds in your sails. Explore. Dream. Discover.
+>  — Mark Twain
 
 
 ## Currently Working on  
