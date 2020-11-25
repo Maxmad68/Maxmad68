@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You defeated me But you won&#39;t defeat me again Because you have grown all you can grow.. But I am still growing (about Mount Everest).
->  — Edmund Hillary
+> Own 100 percent of your focus. The most challenging of endurance drills will bring you to a level of optimal mental and physical performance.
+>  — Lorii Myers
 
 
 ## Currently Working on  
