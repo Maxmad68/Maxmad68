@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Own 100 percent of your focus. The most challenging of endurance drills will bring you to a level of optimal mental and physical performance.
->  — Lorii Myers
+> Plant your own garden and decorate your own soul, instead of waiting for someone to bring you flowers.
+>  — Veronica A. Shoffstall
 
 
 ## Currently Working on  
