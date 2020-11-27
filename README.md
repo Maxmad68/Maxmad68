@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Plant your own garden and decorate your own soul, instead of waiting for someone to bring you flowers.
->  — Veronica A. Shoffstall
+> The journey of a thousand miles begins with one step.
+>  — Lao Tzu
 
 
 ## Currently Working on  
