@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> What is the one sentence summary of how you change the world? Always work hard on something uncomfortably exciting!
->  — Larry Page
+> Stop complaining. Start creating.
+>  — Dale Patridge
 
 
 ## Currently Working on  
