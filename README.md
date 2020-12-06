@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Stop complaining. Start creating.
->  — Dale Patridge
+> Many of life&#39;s failures are experienced by people who did not realize how close they were to success when they gave up.
+>  — Thomas Edison
 
 
 ## Currently Working on  
