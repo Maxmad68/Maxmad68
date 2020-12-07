@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Many of life&#39;s failures are experienced by people who did not realize how close they were to success when they gave up.
->  — Thomas Edison
+> Hang Out with People Who are Better than You.
+>  — Warren Buffett
 
 
 ## Currently Working on  
