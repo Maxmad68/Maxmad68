@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you cannot do great things, do small things in a great way.
->  — Napoleon Hill
+> Find a purpose in life so big it will challenge every capacity to be at your best.
+>  — David O. McKay
 
 
 ## Currently Working on  
