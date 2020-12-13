@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Where there is ruin, there is hope for a treasure.
->  — Rumi
+> Let our advance worrying become advance thinking and planning.
+>  — Winston Churchill
 
 
 ## Currently Working on  
