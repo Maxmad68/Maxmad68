@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Vision without action is daydream. Action without vision is nightmare..
->  — Japanese Proverb
+> I hated every minute of training, but I said, &#39;Don&#39;t quit. Suffer now and live the rest of your life as a champion.&#39;
+>  — Mohamad Ali
 
 
 ## Currently Working on  
