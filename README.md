@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> I hated every minute of training, but I said, &#39;Don&#39;t quit. Suffer now and live the rest of your life as a champion.&#39;
->  — Mohamad Ali
+> Own 100 percent of your focus. The most challenging of endurance drills will bring you to a level of optimal mental and physical performance.
+>  — Lorii Myers
 
 
 ## Currently Working on  
