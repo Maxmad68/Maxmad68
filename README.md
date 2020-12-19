@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Own 100 percent of your focus. The most challenging of endurance drills will bring you to a level of optimal mental and physical performance.
->  — Lorii Myers
+> Do not worry if you have built your castles in the air. They are where they should be. Now put the foundations under them.
+>  — Henry David Thoreau
 
 
 ## Currently Working on  
