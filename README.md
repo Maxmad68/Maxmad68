@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Do not worry if you have built your castles in the air. They are where they should be. Now put the foundations under them.
->  — Henry David Thoreau
+> Man needs his difficulties because they are necessary to enjoy success.
+>  — A. P. J. Abdul Kalam
 
 
 ## Currently Working on  
