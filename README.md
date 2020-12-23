@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You either walk inside your story and own it or you stand outside your story and hustle for your worthiness.
->  — Brene Brown
+> A successful man is one who can lay a firm foundation with the bricks that others throw at him.
+>  — Sidney Greenberg
 
 
 ## Currently Working on  
