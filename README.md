@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The determination to win is the better part of winning.
->  — Daisaku Ikeda
+> Let us think the unthinkable, let us do the undoable, let us prepare to grapple with the ineffable itself, and see if we may not eff it after all.
+>  — Douglas Adams
 
 
 ## Currently Working on  
