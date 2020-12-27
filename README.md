@@ -7,8 +7,11 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> What is the one sentence summary of how you change the world? Always work hard on something uncomfortably exciting!
->  — Larry Page
+> One does not accumulate but eliminate.
+It is not daily increase but daily
+decrease. The height of cultivation
+always runs to simplicity.
+>  — Bruce Lee
 
 
 ## Currently Working on  
