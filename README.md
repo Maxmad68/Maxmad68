@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.
->  — Christiane Northrup
+> You must have a positive self perception in order to transcend anything.
+>  — Steve Maraboli
 
 
 ## Currently Working on  
