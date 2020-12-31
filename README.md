@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You must have a positive self perception in order to transcend anything.
->  — Steve Maraboli
+> I know for sure that what we dwell on is who we become.
+>  — Oprah Winfrey
 
 
 ## Currently Working on  
