@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> I know for sure that what we dwell on is who we become.
->  — Oprah Winfrey
+> Stop complaining. Start creating.
+>  — Dale Patridge
 
 
 ## Currently Working on  
