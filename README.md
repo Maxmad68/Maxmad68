@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Stop complaining. Start creating.
->  — Dale Patridge
+> Do not let what you cannot do interfere with what you can do.
+>  — John Wooden
 
 
 ## Currently Working on  
