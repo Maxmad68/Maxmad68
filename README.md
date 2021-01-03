@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Do not let what you cannot do interfere with what you can do.
->  — John Wooden
+> Core passions and aspirations should be consistent and in sync.
+>  — Lorii Myers
 
 
 ## Currently Working on  
