@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Core passions and aspirations should be consistent and in sync.
->  — Lorii Myers
+> Do not be afraid to give up the good for the great.
+>  — Kenny Rogers
 
 
 ## Currently Working on  
