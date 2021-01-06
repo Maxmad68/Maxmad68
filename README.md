@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> In spite of everything I shall rise again: I will take up my pencil, which I have forsaken in my great discouragement, and I will go on with my drawing.
->  — Vincent Van Gogh
+> You will never win if you never begin.
+>  — Helen Rowland
 
 
 ## Currently Working on  
