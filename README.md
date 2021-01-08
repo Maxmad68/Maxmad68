@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> I hated every minute of training, but I said, &#39;Don&#39;t quit. Suffer now and live the rest of your life as a champion.&#39;
->  — Mohamad Ali
+> Win any way as long as you can get away with it. Nice guys finish last.
+>  — Leo Durocher
 
 
 ## Currently Working on  
