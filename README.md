@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Many a false step was made by standing still.
->  — Fortune Cookie
+> Those who know how to win are much more numerous than those who know how to make proper use of their victories
+>  — Polybius
 
 
 ## Currently Working on  
