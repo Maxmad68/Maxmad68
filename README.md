@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You defeated me But you won&#39;t defeat me again Because you have grown all you can grow.. But I am still growing (about Mount Everest).
->  — Edmund Hillary
+> A successful man is one who can lay a firm foundation with the bricks that others throw at him.
+>  — Sidney Greenberg
 
 
 ## Currently Working on  
