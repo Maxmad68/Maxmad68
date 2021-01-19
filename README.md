@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> A successful man is one who can lay a firm foundation with the bricks that others throw at him.
->  — Sidney Greenberg
+> Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.
+>  — Christiane Northrup
 
 
 ## Currently Working on  
