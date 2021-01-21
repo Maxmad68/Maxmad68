@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The man who removes a mountain begins by carrying away small stones..
->  — Chinese Proverb
+> There&#39;s such a thin line between winning and losing.
+>  — John R. Tunis
 
 
 ## Currently Working on  
