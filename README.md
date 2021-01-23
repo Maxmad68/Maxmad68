@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Think ahead. Don&#39;t let day-to-day operations drive out planning.
->  — Donald Rumsfeld
+> Positive anything is better than negative thinking.
+>  — Elbert Hubbard
 
 
 ## Currently Working on  
