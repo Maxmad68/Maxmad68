@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> All courses of action are risky, so prudence is not in avoiding danger (it&#39;s impossible), but calculating risk and acting decisively. Make mistakes of ambition and not mistakes of sloth. Develop the strength to do bold things, not the strength to suffer.
->  — Niccolo Machiavelli
+> Climb the mountains and get their good tidings. Nature&#39;s peace will flow into you as sunshine flows into trees. The winds will blow their own freshness into you, and the storms their energy, while cares will drop away from you like the leaves of Autumn.
+>  — John Muir
 
 
 ## Currently Working on  
