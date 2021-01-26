@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Climb the mountains and get their good tidings. Nature&#39;s peace will flow into you as sunshine flows into trees. The winds will blow their own freshness into you, and the storms their energy, while cares will drop away from you like the leaves of Autumn.
->  — John Muir
+> You know what it&#39;s like to wake up in the middle of the night with a vivid dream? And you know that if you don&#39;t have a pencil and pad by the bed, it will be completely gone by the next morning. Sometimes it&#39;s important to wake up and stop dreaming. When a really great dream shows up, grab it.
+>  — Larry Page
 
 
 ## Currently Working on  
