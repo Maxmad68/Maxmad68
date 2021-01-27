@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You know what it&#39;s like to wake up in the middle of the night with a vivid dream? And you know that if you don&#39;t have a pencil and pad by the bed, it will be completely gone by the next morning. Sometimes it&#39;s important to wake up and stop dreaming. When a really great dream shows up, grab it.
->  — Larry Page
+> The best way to not feel hopeless is to get up and do something. Don&#39;t wait for good things to happen to you. If you go out and make some good things happen, you will fill the world with hope, you will fill yourself with hope.
+>  — Barack Obama
 
 
 ## Currently Working on  
