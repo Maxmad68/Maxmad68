@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You must have a positive self perception in order to transcend anything.
->  — Steve Maraboli
+> The last time doesn&#39;t exist. It&#39;s only this time. And everything is going to be different this time. There&#39;s only now.
+>  — Bill Murray
 
 
 ## Currently Working on  
