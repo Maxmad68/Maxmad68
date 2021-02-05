@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> When it comes to winning, you need the skill and the will.
->  — Frank Tyger
+> When you win, say nothing. When you lose, say less.
+>  — Paul Brown
 
 
 ## Currently Working on  
