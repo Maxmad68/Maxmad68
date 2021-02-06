@@ -7,8 +7,11 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> When you win, say nothing. When you lose, say less.
->  — Paul Brown
+> One does not accumulate but eliminate.
+It is not daily increase but daily
+decrease. The height of cultivation
+always runs to simplicity.
+>  — Bruce Lee
 
 
 ## Currently Working on  
