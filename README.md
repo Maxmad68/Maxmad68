@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Let our advance worrying become advance thinking and planning.
->  — Winston Churchill
+> Named must your fear be before banish it you can.
+>  — Yoda
 
 
 ## Currently Working on  
