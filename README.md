@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Think ahead. Don&#39;t let day-to-day operations drive out planning.
->  — Donald Rumsfeld
+> Go confidently in the direction of your dreams. Live the life you&#39;ve imagined. As you simplify your life, the laws of the universe will be simpler.
+>  — Henry David Thoreau
 
 
 ## Currently Working on  
