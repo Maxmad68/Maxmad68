@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Go confidently in the direction of your dreams. Live the life you&#39;ve imagined. As you simplify your life, the laws of the universe will be simpler.
->  — Henry David Thoreau
+> You should never view your challenges as a disadvantage. Instead, it&#39;s important for you to understand that your experience facing and overcoming adversity is actually one of your biggest advantages.
+>  — Michelle Obama
 
 
 ## Currently Working on  
