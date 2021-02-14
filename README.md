@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Winning is not everything, but the effort to win is.
->  — Zig Ziglar
+> Where there is ruin, there is hope for a treasure.
+>  — Rumi
 
 
 ## Currently Working on  
