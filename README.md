@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you don&#39;t have confidence, you&#39;ll always find a way not to win
->  — Carl Lewis
+> Don&#39;t be tempted to break momentum-work through it.
+>  — Lorii Myers
 
 
 ## Currently Working on  
