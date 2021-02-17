@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Don&#39;t be tempted to break momentum-work through it.
->  — Lorii Myers
+> The determination to win is the better part of winning.
+>  — Daisaku Ikeda
 
 
 ## Currently Working on  
