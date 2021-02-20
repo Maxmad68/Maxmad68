@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Don&#39;t count the days; make the days count.
->  — Mohamad Ali
+> It is easy to sit up and take notice, What is difficult is getting up and taking action.
+>  — Honore de Balzac
 
 
 ## Currently Working on  
