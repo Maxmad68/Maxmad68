@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It is easy to sit up and take notice, What is difficult is getting up and taking action.
->  — Honore de Balzac
+> If you respect yourself in stressful situations, it will help you see the positive… It will help you see the message in the mess.
+>  — Steve Maraboli
 
 
 ## Currently Working on  
