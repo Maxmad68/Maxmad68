@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you respect yourself in stressful situations, it will help you see the positive… It will help you see the message in the mess.
->  — Steve Maraboli
+> Limitations are like mirages created by your own mind. When you realise that limitation do not exist, those around you will also feel it and allow you inside their space.
+>  — Stephen Richards
 
 
 ## Currently Working on  
