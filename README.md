@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Limitations are like mirages created by your own mind. When you realise that limitation do not exist, those around you will also feel it and allow you inside their space.
->  — Stephen Richards
+> People who are crazy enough to think they can change the world, are the ones who do.
+>  — Apple Computers
 
 
 ## Currently Working on  
