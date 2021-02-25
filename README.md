@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Once your excuses are gone, you will simply have to settle for being awesome!
->  — Lorii Myers
+> You can&#39;t succeed coming to the potluck with only a fork.
+>  — Dave Liniger
 
 
 ## Currently Working on  
