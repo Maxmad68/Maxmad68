@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You can&#39;t succeed coming to the potluck with only a fork.
->  — Dave Liniger
+> Failure is the condiment that gives success its flavor.
+>  — Truman Capote
 
 
 ## Currently Working on  
