@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Beyond a certain point there is no return. This point has to be reached.
->  — Franz Kafka
+> If you don&#39;t give up, you still have a chance. And when you are small, you have to be very focused and rely on your brain, not your strength.
+>  — Jack Ma
 
 
 ## Currently Working on  
