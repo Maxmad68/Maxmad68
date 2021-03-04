@@ -7,8 +7,11 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you don&#39;t give up, you still have a chance. And when you are small, you have to be very focused and rely on your brain, not your strength.
->  — Jack Ma
+> One does not accumulate but eliminate.
+It is not daily increase but daily
+decrease. The height of cultivation
+always runs to simplicity.
+>  — Bruce Lee
 
 
 ## Currently Working on  
