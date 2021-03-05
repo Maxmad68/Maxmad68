@@ -7,11 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> One does not accumulate but eliminate.
-It is not daily increase but daily
-decrease. The height of cultivation
-always runs to simplicity.
->  — Bruce Lee
+> Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.
+>  — Zaha Hadid
 
 
 ## Currently Working on  
