@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> I think it&#39;s very important to have a feedback loop, where you&#39;re constantly thinking about what you&#39;ve done and how you could be doing it better. I think that&#39;s the single best piece of advice: constantly think about how you could be doing things better and questioning yourself.
->  — Elon Musk
+> The best way to predict the future is to create it.
+>  — Abraham Lincoln
 
 
 ## Currently Working on  
