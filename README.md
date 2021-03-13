@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Whether you think you can or think you can&#39;t, you&#39;re right..
->  — Henry Ford
+> Life is like a camera: just focus on what is important, capture good times, develop from negative, and if things do not work out, take another shot!
+>  — Daireth Winehouse
 
 
 ## Currently Working on  
