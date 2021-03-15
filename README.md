@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The beginning of freedom is the realization that you are not the possessing entity the thinker.
->  — Eckhart Tolle
+> I am an optimist. It does not seem too much use being anything else..
+>  — Winston Churchill
 
 
 ## Currently Working on  
