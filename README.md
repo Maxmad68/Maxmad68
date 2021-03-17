@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.
->  — Zaha Hadid
+> You will never win if you never begin.
+>  — Helen Rowland
 
 
 ## Currently Working on  
