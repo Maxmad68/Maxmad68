@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> A quitter never wins and a winner never quits
->  — Napoleon Hill
+> There is nothing noble about being superior to some other man. The true nobility is in being superior to your previous self.
+>  — Hindu Proverb
 
 
 ## Currently Working on  
