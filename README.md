@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> An aspirational diet will have you dreaming of success; but it&#39;s the attachment of expectations and tangible goals that feeds the desire, persistence, and fortitude required to make the win.
->  — Lorii Myers
+> Life is like a camera: just focus on what is important, capture good times, develop from negative, and if things do not work out, take another shot!
+>  — Daireth Winehouse
 
 
 ## Currently Working on  
