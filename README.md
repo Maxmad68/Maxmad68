@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Winning is not everything, but the effort to win is.
->  — Zig Ziglar
+> We are each gifted in a unique and important way. It is our privilege and our adventure to discover our own special light
+>  — Mary Dunbar
 
 
 ## Currently Working on  
