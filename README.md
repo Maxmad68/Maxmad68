@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> We are each gifted in a unique and important way. It is our privilege and our adventure to discover our own special light
->  — Mary Dunbar
+> You make a living by what you earn; you make a life by what you give.
+>  — Winston Churchill
 
 
 ## Currently Working on  
