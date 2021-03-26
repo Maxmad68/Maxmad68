@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.
->  — Christiane Northrup
+> Sometimes you climb out of bed in the morning and you think, I&#39;m not going to make it, but you laugh inside - remembering all the times you&#39;ve felt that way.
+>  — Charles Bukowski
 
 
 ## Currently Working on  
