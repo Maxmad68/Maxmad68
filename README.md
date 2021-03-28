@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It isn&#39;t the mountains ahead to climb that wear you out; it&#39;s the pebble in your shoe.
->  — Mohamad Ali
+> Great things are done by a series of small things brought together.
+>  — Vincent Van Gogh
 
 
 ## Currently Working on  
