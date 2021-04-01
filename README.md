@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The free soul is rare, but you know it when you see it - basically because you feel good, very good, when you are near or with them.
->  — Charles Bukowski
+> Your fears, your critics, your heroes, your villains: They are fictions you perceive as reality. Choose to see through them. Choose to let them go.
+>  — Isaac Lidsky
 
 
 ## Currently Working on  
