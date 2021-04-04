@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.
->  — Christiane Northrup
+> Effort only fully releases its reward after a person refuses to quit.
+>  — Napoleon Hill
 
 
 ## Currently Working on  
