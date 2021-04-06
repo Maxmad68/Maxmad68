@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The best way to predict the future is to create it.
->  — Abraham Lincoln
+> Sustenance! Your health is always the best prescription.
+>  — Lorii Myers
 
 
 ## Currently Working on  
