@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Sustenance! Your health is always the best prescription.
->  — Lorii Myers
+> Let go of who you think you&#39;re supposed to be; embrace who you are.
+>  — Brene Brown
 
 
 ## Currently Working on  
