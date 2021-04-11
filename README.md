@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Winning is not everything, but the effort to win is.
->  — Zig Ziglar
+> You defeated me But you won&#39;t defeat me again Because you have grown all you can grow.. But I am still growing (about Mount Everest).
+>  — Edmund Hillary
 
 
 ## Currently Working on  
