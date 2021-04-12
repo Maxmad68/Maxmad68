@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You defeated me But you won&#39;t defeat me again Because you have grown all you can grow.. But I am still growing (about Mount Everest).
->  — Edmund Hillary
+> We hold ourselves back in ways both big and small, by lacking self-confidence, by not raising our hands, and by pulling back when we should be leaning in.
+>  — Sheryl Sandberg
 
 
 ## Currently Working on  
