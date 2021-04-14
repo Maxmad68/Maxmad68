@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Remove the temptation to settle for anything short of what you deserve.
->  — Lorii Myers
+> Many a false step was made by standing still.
+>  — Fortune Cookie
 
 
 ## Currently Working on  
