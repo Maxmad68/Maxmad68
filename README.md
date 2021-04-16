@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It is easy to sit up and take notice, What is difficult is getting up and taking action.
->  — Honore de Balzac
+> Core passions and aspirations should be consistent and in sync.
+>  — Lorii Myers
 
 
 ## Currently Working on  
