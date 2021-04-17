@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Core passions and aspirations should be consistent and in sync.
->  — Lorii Myers
+> Persistence is very important. You should not give up unless you are forced to give up.
+>  — Elon Musk
 
 
 ## Currently Working on  
