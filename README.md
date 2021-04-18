@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Persistence is very important. You should not give up unless you are forced to give up.
->  — Elon Musk
+> Perfection is not attainable, but if we chase perfection we can catch excellence..
+>  — Vince Lombardi
 
 
 ## Currently Working on  
