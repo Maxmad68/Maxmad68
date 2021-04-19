@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Perfection is not attainable, but if we chase perfection we can catch excellence..
->  — Vince Lombardi
+> Once your excuses are gone, you will simply have to settle for being awesome!
+>  — Lorii Myers
 
 
 ## Currently Working on  
