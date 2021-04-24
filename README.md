@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you&#39;re not making mistakes, you&#39;re not taking risks, and that means you&#39;re not going anywhere. The key is to make mistakes faster than the competition, so you have more changes to learn and win.
->  — John W. Holt, Jr.
+> When a man is an upright contender, only real people are bound to be around; but if he is a downright pretender, then fake people surround and always abound to be found.
+>  — Anuj Somany
 
 
 ## Currently Working on  
