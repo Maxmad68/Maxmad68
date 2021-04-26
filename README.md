@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Named must your fear be before banish it you can.
->  — Yoda
+> The best way to predict the future is to create it.
+>  — Abraham Lincoln
 
 
 ## Currently Working on  
