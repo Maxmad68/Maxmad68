@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The best way to predict the future is to create it.
->  — Abraham Lincoln
+> Somewhere between the bottom of the climb and the summit is the answer to the mystery why we climb.
+>  — Greg Child
 
 
 ## Currently Working on  
