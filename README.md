@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Do not be afraid to give up the good for the great.
->  — Kenny Rogers
+> We don&#39;t have to do all of it alone. We were never meant to.
+>  — Brene Brown
 
 
 ## Currently Working on  
