@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Do not let what you cannot do interfere with what you can do.
->  — John Wooden
+> I am an optimist. It does not seem too much use being anything else..
+>  — Winston Churchill
 
 
 ## Currently Working on  
