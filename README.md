@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The things you learn in maturity aren&#39;t simple things such as acquiring information and skills. You learn not to engage in self-destructive behavior. You learn not to burn up energy in anxiety. You discover how to manage your tensions. You learn that self-pity and resentment are among the most toxic of drugs. You find that the world loves talent but pays off on character.
->  — John Gardner
+> Time to improve is limited. The clock is always on and doesn&#39;t care if you don&#39;t feel like it. Someone else does and they&#39;re passing you by.
+>  — William James Moore
 
 
 ## Currently Working on  
