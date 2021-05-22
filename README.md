@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Great ambition is the passion of a great character. Those endowed with it may perform very good or very bad acts. All depends on the principals which direct them.
->  — Napoleon Bonaparte
+> A man can suffer to bring a group of people to success, not the other way.
+>  — Ganesh
 
 
 ## Currently Working on  
