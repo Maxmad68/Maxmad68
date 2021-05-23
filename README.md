@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> A man can suffer to bring a group of people to success, not the other way.
->  — Ganesh
+> Failure is the condiment that gives success its flavor.
+>  — Truman Capote
 
 
 ## Currently Working on  
