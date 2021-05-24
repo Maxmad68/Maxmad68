@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Failure is the condiment that gives success its flavor.
->  — Truman Capote
+> You are very powerful, provided you know how powerful you are.
+>  — Yogi Bhajan
 
 
 ## Currently Working on  
