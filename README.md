@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Your fears, your critics, your heroes, your villains: They are fictions you perceive as reality. Choose to see through them. Choose to let them go.
->  — Isaac Lidsky
+> Vision without action is daydream. Action without vision is nightmare..
+>  — Japanese Proverb
 
 
 ## Currently Working on  
