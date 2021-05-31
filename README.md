@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> When you win, say nothing. When you lose, say less.
->  — Paul Brown
+> We are each gifted in a unique and important way. It is our privilege and our adventure to discover our own special light
+>  — Mary Dunbar
 
 
 ## Currently Working on  
