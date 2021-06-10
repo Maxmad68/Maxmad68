@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Vision without action is daydream. Action without vision is nightmare..
->  — Japanese Proverb
+> From now on we live in a world where man has walked on the Moon. It&#39;s not a miracle; we just decided to go.
+>  — Tom Hanks
 
 
 ## Currently Working on  
