@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Do the best you can until you know better. Then when you know better, do better.
->  — Maya Angelou
+> He who is not courageous enough to take risks will accomplish nothing in life.
+>  — Mohamad Ali
 
 
 ## Currently Working on  
