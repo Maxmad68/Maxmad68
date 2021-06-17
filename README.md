@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Vulnerability is not winning or losing; it&#39;s having the courage to show up and be seen when we have no control over the outcome.
->  — Brene Brown
+> From now on we live in a world where man has walked on the Moon. It&#39;s not a miracle; we just decided to go.
+>  — Tom Hanks
 
 
 ## Currently Working on  
