@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you&#39;re changing the world, you&#39;re working on important things. You&#39;re excited to get up in the morning.
->  — Larry Page
+> Winning isn&#39;t everything.. It&#39;s the only thing.
+>  — Vincent van Gogh
 
 
 ## Currently Working on  
