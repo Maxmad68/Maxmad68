@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Vision without action is daydream. Action without vision is nightmare..
->  — Japanese Proverb
+> I keep asking myself these three questions.. What do you have? What do you want? What will you give up?
+>  — Jack Ma
 
 
 ## Currently Working on  
