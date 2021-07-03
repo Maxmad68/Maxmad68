@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> I keep asking myself these three questions.. What do you have? What do you want? What will you give up?
->  — Jack Ma
+> Vulnerability is not winning or losing; it&#39;s having the courage to show up and be seen when we have no control over the outcome.
+>  — Brene Brown
 
 
 ## Currently Working on  
