@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Our words are buttressed by our deeds, and our deeds are inspired by our convictions.
->  — Theodore Hesburgh
+> There&#39;s such a thin line between winning and losing.
+>  — John R. Tunis
 
 
 ## Currently Working on  
