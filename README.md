@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Vulnerability is not winning or losing; it&#39;s having the courage to show up and be seen when we have no control over the outcome.
->  — Brene Brown
+> What is the one sentence summary of how you change the world? Always work hard on something uncomfortably exciting!
+>  — Larry Page
 
 
 ## Currently Working on  
