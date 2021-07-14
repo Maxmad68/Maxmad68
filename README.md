@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> What is the one sentence summary of how you change the world? Always work hard on something uncomfortably exciting!
->  — Larry Page
+> Keep a positive mind. Remember, a failed attempt doesn&#39;t make you a failure-giving up does.
+>  — Lorii Myers
 
 
 ## Currently Working on  
