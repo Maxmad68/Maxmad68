@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Keep a positive mind. Remember, a failed attempt doesn&#39;t make you a failure-giving up does.
->  — Lorii Myers
+> You gotta commit. You&#39;ve gotta go out there and improvise and you&#39;ve gotta be completely unafraid to die. You&#39;ve got to be able to take a chance to die. And you have to die lots. You have to die all the time.
+>  — Bill Murray
 
 
 ## Currently Working on  
