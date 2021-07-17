@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Don&#39;t use all-or-nothing thinking. Take each day as its own day, and don&#39;t worry about it if you mess up one day. The most important thing you can do is just get back up on the horse.
->  — Henry Cloud
+> Twenty years from now you will be more disappointed by the things that you didn&#39;t do than by the ones you did do. So throw off the bowlines. Sail away from the safe harbor. Catch the trade winds in your sails. Explore. Dream. Discover.
+>  — Mark Twain
 
 
 ## Currently Working on  
