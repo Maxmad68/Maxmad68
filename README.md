@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Twenty years from now you will be more disappointed by the things that you didn&#39;t do than by the ones you did do. So throw off the bowlines. Sail away from the safe harbor. Catch the trade winds in your sails. Explore. Dream. Discover.
->  — Mark Twain
+> It is easy to sit up and take notice, What is difficult is getting up and taking action.
+>  — Honore de Balzac
 
 
 ## Currently Working on  
