@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It is easy to sit up and take notice, What is difficult is getting up and taking action.
->  — Honore de Balzac
+> The free soul is rare, but you know it when you see it - basically because you feel good, very good, when you are near or with them.
+>  — Charles Bukowski
 
 
 ## Currently Working on  
