@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The free soul is rare, but you know it when you see it - basically because you feel good, very good, when you are near or with them.
->  — Charles Bukowski
+> It isn&#39;t what you have, or who you are, or where you are, or what you are doing that makes you happy or unhappy. It is what you think about.
+>  — Dale Carnegie
 
 
 ## Currently Working on  
