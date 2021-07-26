@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Winning isn&#39;t everything.. It&#39;s the only thing.
->  — Vincent van Gogh
+> Luck is a dividend of sweat. The more you sweat, the luckier you get
+>  — Ray Kroc
 
 
 ## Currently Working on  
