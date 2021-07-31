@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> I always advice people - Don&#39;t wait ! Do something when you are young, when you have no responsibilities. Invest time in yourself to have great Experiences that are going to enrich you, then you can&#39;t possibly lose.
->  — Steve Jobs
+> Time to improve is limited. The clock is always on and doesn&#39;t care if you don&#39;t feel like it. Someone else does and they&#39;re passing you by.
+>  — William James Moore
 
 
 ## Currently Working on  
