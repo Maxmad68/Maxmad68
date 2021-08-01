@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Time to improve is limited. The clock is always on and doesn&#39;t care if you don&#39;t feel like it. Someone else does and they&#39;re passing you by.
->  — William James Moore
+> At that point where you have decided to upgrade from aspiration to expectation and have begun to visualize an outcome, something incredibly important has happened, you have committed to the process of change.
+>  — Lorii Myers
 
 
 ## Currently Working on  
