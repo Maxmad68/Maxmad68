@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you want to make your dreams come true, the first thing you have to do is wake up.
->  — J.M. Power
+> If you respect yourself in stressful situations, it will help you see the positive… It will help you see the message in the mess.
+>  — Steve Maraboli
 
 
 ## Currently Working on  
