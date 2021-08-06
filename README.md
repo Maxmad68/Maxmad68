@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you respect yourself in stressful situations, it will help you see the positive… It will help you see the message in the mess.
->  — Steve Maraboli
+> When there is no distraction, there is clarity.
+>  — Lorii Myers
 
 
 ## Currently Working on  
