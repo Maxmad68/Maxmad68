@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The last time doesn&#39;t exist. It&#39;s only this time. And everything is going to be different this time. There&#39;s only now.
->  — Bill Murray
+> Vision without action is daydream. Action without vision is nightmare..
+>  — Japanese Proverb
 
 
 ## Currently Working on  
