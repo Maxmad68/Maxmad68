@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Vision without action is daydream. Action without vision is nightmare..
->  — Japanese Proverb
+> Whether you think you can or think you can&#39;t, you&#39;re right..
+>  — Henry Ford
 
 
 ## Currently Working on  
