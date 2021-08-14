@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Stress is like a pulse, if you have it you are alive.
->  — Steve Maraboli
+> In spite of everything I shall rise again: I will take up my pencil, which I have forsaken in my great discouragement, and I will go on with my drawing.
+>  — Vincent Van Gogh
 
 
 ## Currently Working on  
