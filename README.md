@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> In spite of everything I shall rise again: I will take up my pencil, which I have forsaken in my great discouragement, and I will go on with my drawing.
->  — Vincent Van Gogh
+> Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.
+>  — Christiane Northrup
 
 
 ## Currently Working on  
