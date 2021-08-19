@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It isn&#39;t what you have, or who you are, or where you are, or what you are doing that makes you happy or unhappy. It is what you think about.
->  — Dale Carnegie
+> When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.
+>  — Jean Shinoda Bolen
 
 
 ## Currently Working on  
