@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Climb the mountains and get their good tidings. Nature&#39;s peace will flow into you as sunshine flows into trees. The winds will blow their own freshness into you, and the storms their energy, while cares will drop away from you like the leaves of Autumn.
->  — John Muir
+> You should never view your challenges as a disadvantage. Instead, it&#39;s important for you to understand that your experience facing and overcoming adversity is actually one of your biggest advantages.
+>  — Michelle Obama
 
 
 ## Currently Working on  
