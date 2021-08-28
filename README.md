@@ -7,7 +7,7 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Vulnerability is not winning or losing; it&#39;s having the courage to show up and be seen when we have no control over the outcome.
+> We don&#39;t have to do all of it alone. We were never meant to.
 >  — Brene Brown
 
 
