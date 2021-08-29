@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> We don&#39;t have to do all of it alone. We were never meant to.
->  — Brene Brown
+> A show of confidence raises the bar
+>  — Lorii Myers
 
 
 ## Currently Working on  
