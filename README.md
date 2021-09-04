@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> When you win, say nothing. When you lose, say less.
->  — Paul Brown
+> Vision without action is daydream. Action without vision is nightmare..
+>  — Japanese Proverb
 
 
 ## Currently Working on  
