@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Vision without action is daydream. Action without vision is nightmare..
->  — Japanese Proverb
+> It is easy to sit up and take notice, What is difficult is getting up and taking action.
+>  — Honore de Balzac
 
 
 ## Currently Working on  
