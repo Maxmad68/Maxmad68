@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Some men see things as they are and say why.. I dream things that never were and say why not.
->  — George Bernard Shaw
+> I keep asking myself these three questions.. What do you have? What do you want? What will you give up?
+>  — Jack Ma
 
 
 ## Currently Working on  
