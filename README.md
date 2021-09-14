@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Sustenance! Your health is always the best prescription.
->  — Lorii Myers
+> The real opportunity for success lies within the person and not in the job.
+>  — Zig Ziglar
 
 
 ## Currently Working on  
