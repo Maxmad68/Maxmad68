@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The real opportunity for success lies within the person and not in the job.
->  — Zig Ziglar
+> Stress is like a pulse, if you have it you are alive.
+>  — Steve Maraboli
 
 
 ## Currently Working on  
