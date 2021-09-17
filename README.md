@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Vision without action is daydream. Action without vision is nightmare..
->  — Japanese Proverb
+> If you don&#39;t have confidence, you&#39;ll always find a way not to win
+>  — Carl Lewis
 
 
 ## Currently Working on  
