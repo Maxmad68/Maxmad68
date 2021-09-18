@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you don&#39;t have confidence, you&#39;ll always find a way not to win
->  — Carl Lewis
+> If you want to test your memory, try to recall what you were worrying about one year ago today.
+>  — E. Joseph Cossman
 
 
 ## Currently Working on  
