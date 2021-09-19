@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you want to test your memory, try to recall what you were worrying about one year ago today.
->  — E. Joseph Cossman
+> Do the best you can until you know better. Then when you know better, do better.
+>  — Maya Angelou
 
 
 ## Currently Working on  
