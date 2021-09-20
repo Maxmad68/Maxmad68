@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Do the best you can until you know better. Then when you know better, do better.
->  — Maya Angelou
+> Effort only fully releases its reward after a person refuses to quit.
+>  — Napoleon Hill
 
 
 ## Currently Working on  
