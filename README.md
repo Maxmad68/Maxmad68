@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.
->  — Jean Shinoda Bolen
+> Winning is nice if you don&#39;t lose your integrity in the process.
+>  — Arnold Horshak
 
 
 ## Currently Working on  
