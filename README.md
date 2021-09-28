@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The tennis ball doesn&#39;t know how old I am. The ball doesn&#39;t know if I&#39;m a man or a woman or if I come from a communist country or not. Sport has always broken down these barriers.
->  — Martina Navratilova
+> Don&#39;t be tempted to break momentum-work through it.
+>  — Lorii Myers
 
 
 ## Currently Working on  
