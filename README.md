@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> I keep asking myself these three questions.. What do you have? What do you want? What will you give up?
->  — Jack Ma
+> When you win, say nothing. When you lose, say less.
+>  — Paul Brown
 
 
 ## Currently Working on  
