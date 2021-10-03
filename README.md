@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> When you win, say nothing. When you lose, say less.
->  — Paul Brown
+> Named must your fear be before banish it you can.
+>  — Yoda
 
 
 ## Currently Working on  
