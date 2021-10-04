@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Named must your fear be before banish it you can.
->  — Yoda
+> It wasn&#39;t raining when Noah built the ark..
+>  — Howard Ruff
 
 
 ## Currently Working on  
