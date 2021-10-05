@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It wasn&#39;t raining when Noah built the ark..
->  — Howard Ruff
+> Remember that you are very special, no one can play your role better than you.
+>  — Damayanti Patra
 
 
 ## Currently Working on  
