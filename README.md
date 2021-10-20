@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Somewhere between the bottom of the climb and the summit is the answer to the mystery why we climb.
->  — Greg Child
+> Your life does not get better by chance. It gets better by change.
+>  — Jim Rohn
 
 
 ## Currently Working on  
