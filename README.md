@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Your life does not get better by chance. It gets better by change.
->  — Jim Rohn
+> Effort only fully releases its reward after a person refuses to quit.
+>  — Napoleon Hill
 
 
 ## Currently Working on  
