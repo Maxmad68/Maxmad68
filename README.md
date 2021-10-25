@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Climb the mountains and get their good tidings. Nature&#39;s peace will flow into you as sunshine flows into trees. The winds will blow their own freshness into you, and the storms their energy, while cares will drop away from you like the leaves of Autumn.
->  — John Muir
+> The tennis ball doesn&#39;t know how old I am. The ball doesn&#39;t know if I&#39;m a man or a woman or if I come from a communist country or not. Sport has always broken down these barriers.
+>  — Martina Navratilova
 
 
 ## Currently Working on  
