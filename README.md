@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you have dreams it is your responsibility to make them happen.
->  — Bel Pesce
+> Stress is like a pulse, if you have it you are alive.
+>  — Steve Maraboli
 
 
 ## Currently Working on  
