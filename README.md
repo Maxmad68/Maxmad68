@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Vision without action is daydream. Action without vision is nightmare..
->  — Japanese Proverb
+> He who is not courageous enough to take risks will accomplish nothing in life.
+>  — Mohamad Ali
 
 
 ## Currently Working on  
