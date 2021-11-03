@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The man who removes a mountain begins by carrying away small stones..
->  — Chinese Proverb
+> When you win, say nothing. When you lose, say less.
+>  — Paul Brown
 
 
 ## Currently Working on  
