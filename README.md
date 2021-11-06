@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You will never win if you never begin.
->  — Helen Rowland
+> Win any way as long as you can get away with it. Nice guys finish last.
+>  — Leo Durocher
 
 
 ## Currently Working on  
