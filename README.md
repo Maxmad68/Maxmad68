@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Stress is like a pulse, if you have it you are alive.
->  — Steve Maraboli
+> Winning isn&#39;t everything.. It&#39;s the only thing.
+>  — Vincent van Gogh
 
 
 ## Currently Working on  
