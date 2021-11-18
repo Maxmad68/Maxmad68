@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you want to test your memory, try to recall what you were worrying about one year ago today.
->  — E. Joseph Cossman
+> What is the one sentence summary of how you change the world? Always work hard on something uncomfortably exciting!
+>  — Larry Page
 
 
 ## Currently Working on  
