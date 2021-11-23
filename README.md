@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> From now on we live in a world where man has walked on the Moon. It&#39;s not a miracle; we just decided to go.
->  — Tom Hanks
+> We don&#39;t have to do all of it alone. We were never meant to.
+>  — Brene Brown
 
 
 ## Currently Working on  
