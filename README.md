@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> We don&#39;t have to do all of it alone. We were never meant to.
->  — Brene Brown
+> If we ever stop thinking about the person we want to become, we stop learning and taking risks.
+>  — Sally Blount
 
 
 ## Currently Working on  
