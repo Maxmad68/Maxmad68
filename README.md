@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If I work as hard as I can, I wonder how much I can do in a day?
->  — Ezra Taft Benson
+> At that point where you have decided to upgrade from aspiration to expectation and have begun to visualize an outcome, something incredibly important has happened, you have committed to the process of change.
+>  — Lorii Myers
 
 
 ## Currently Working on  
