@@ -7,7 +7,7 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> At that point where you have decided to upgrade from aspiration to expectation and have begun to visualize an outcome, something incredibly important has happened, you have committed to the process of change.
+> Don&#39;t be tempted to break momentum-work through it.
 >  — Lorii Myers
 
 
