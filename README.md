@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> A man who has no imagination has no wings.
->  — Mohamad Ali
+> Winning is nice if you don&#39;t lose your integrity in the process.
+>  — Arnold Horshak
 
 
 ## Currently Working on  
