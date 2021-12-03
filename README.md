@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Winning is nice if you don&#39;t lose your integrity in the process.
->  — Arnold Horshak
+> Limitations are like mirages created by your own mind. When you realise that limitation do not exist, those around you will also feel it and allow you inside their space.
+>  — Stephen Richards
 
 
 ## Currently Working on  
