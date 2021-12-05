@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Perfection is not attainable, but if we chase perfection we can catch excellence..
->  — Vince Lombardi
+> People who are crazy enough to think they can change the world, are the ones who do.
+>  — Apple Computers
 
 
 ## Currently Working on  
