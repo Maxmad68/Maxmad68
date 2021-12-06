@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> People who are crazy enough to think they can change the world, are the ones who do.
->  — Apple Computers
+> I keep asking myself these three questions.. What do you have? What do you want? What will you give up?
+>  — Jack Ma
 
 
 ## Currently Working on  
