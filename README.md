@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> I keep asking myself these three questions.. What do you have? What do you want? What will you give up?
->  — Jack Ma
+> It isn&#39;t what you have, or who you are, or where you are, or what you are doing that makes you happy or unhappy. It is what you think about.
+>  — Dale Carnegie
 
 
 ## Currently Working on  
