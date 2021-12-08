@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It isn&#39;t what you have, or who you are, or where you are, or what you are doing that makes you happy or unhappy. It is what you think about.
->  — Dale Carnegie
+> If you want to make your dreams come true, the first thing you have to do is wake up.
+>  — J.M. Power
 
 
 ## Currently Working on  
