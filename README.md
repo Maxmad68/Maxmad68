@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you want to make your dreams come true, the first thing you have to do is wake up.
->  — J.M. Power
+> Effort only fully releases its reward after a person refuses to quit.
+>  — Napoleon Hill
 
 
 ## Currently Working on  
