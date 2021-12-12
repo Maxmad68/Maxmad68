@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> A show of confidence raises the bar
->  — Lorii Myers
+> If you don&#39;t have confidence, you&#39;ll always find a way not to win
+>  — Carl Lewis
 
 
 ## Currently Working on  
