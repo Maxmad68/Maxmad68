@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Winning is nice if you don&#39;t lose your integrity in the process.
->  — Arnold Horshak
+> If you have dreams it is your responsibility to make them happen.
+>  — Bel Pesce
 
 
 ## Currently Working on  
