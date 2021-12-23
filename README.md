@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The journey of a thousand miles begins with one step.
->  — Lao Tzu
+> A quitter never wins and a winner never quits
+>  — Napoleon Hill
 
 
 ## Currently Working on  
