@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Vulnerability is not winning or losing; it&#39;s having the courage to show up and be seen when we have no control over the outcome.
->  — Brene Brown
+> Climb the mountains and get their good tidings. Nature&#39;s peace will flow into you as sunshine flows into trees. The winds will blow their own freshness into you, and the storms their energy, while cares will drop away from you like the leaves of Autumn.
+>  — John Muir
 
 
 ## Currently Working on  
