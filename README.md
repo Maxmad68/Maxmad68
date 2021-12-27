@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Your life does not get better by chance. It gets better by change.
->  — Jim Rohn
+> Stop complaining. Start creating.
+>  — Dale Patridge
 
 
 ## Currently Working on  
