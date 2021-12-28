@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Stop complaining. Start creating.
->  — Dale Patridge
+> Our words are buttressed by our deeds, and our deeds are inspired by our convictions.
+>  — Theodore Hesburgh
 
 
 ## Currently Working on  
