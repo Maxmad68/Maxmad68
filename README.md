@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Our words are buttressed by our deeds, and our deeds are inspired by our convictions.
->  — Theodore Hesburgh
+> Named must your fear be before banish it you can.
+>  — Yoda
 
 
 ## Currently Working on  
