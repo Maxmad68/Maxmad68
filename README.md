@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You are very powerful, provided you know how powerful you are.
->  — Yogi Bhajan
+> Keep on going and the chances are you will stumble on something, perhaps when you are least expecting it. I have never heard of anyone stumbling on something sitting down.
+>  — Charles F. Kettering
 
 
 ## Currently Working on  
