@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Keep on going and the chances are you will stumble on something, perhaps when you are least expecting it. I have never heard of anyone stumbling on something sitting down.
->  — Charles F. Kettering
+> If you&#39;re changing the world, you&#39;re working on important things. You&#39;re excited to get up in the morning.
+>  — Larry Page
 
 
 ## Currently Working on  
