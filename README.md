@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It wasn&#39;t raining when Noah built the ark..
->  — Howard Ruff
+> You will never win if you never begin.
+>  — Helen Rowland
 
 
 ## Currently Working on  
