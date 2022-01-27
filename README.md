@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you can consciously let yourself get taken and see where you go, that&#39;s an exercise. That&#39;s discipline. To follow the scent. Let yourself go and see what happens, that takes a bit of courage.
->  — Bill Murray
+> Somewhere between the bottom of the climb and the summit is the answer to the mystery why we climb.
+>  — Greg Child
 
 
 ## Currently Working on  
