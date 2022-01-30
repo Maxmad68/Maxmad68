@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> People rise to the occasion without hesitation when they feel inspired and challenged.
->  — Lorii Myers
+> When you win, say nothing. When you lose, say less.
+>  — Paul Brown
 
 
 ## Currently Working on  
