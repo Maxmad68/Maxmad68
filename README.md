@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The man who has confidence in himself gains the confidence of others.
->  — Hasidic Proverb
+> When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.
+>  — Jean Shinoda Bolen
 
 
 ## Currently Working on  
