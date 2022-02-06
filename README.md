@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Extend beyond your preconceived limits!
->  — Lorii Myers
+> Once a man has made a commitment to a way of life, he puts the greatest strength in the world behind him. It&#39;s something we call heart power. Once a man has made his commitment, nothing will stop him short of success.
+>  — Vince Lombardi
 
 
 ## Currently Working on  
