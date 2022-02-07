@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Once a man has made a commitment to a way of life, he puts the greatest strength in the world behind him. It&#39;s something we call heart power. Once a man has made his commitment, nothing will stop him short of success.
->  — Vince Lombardi
+> Ignition (n): The motivational process that occurs when your identity becomes linked to a long-term vision of your future. Triggers significant amounts of unconscious energy; usually marked by the realization: That is who I want to be.
+>  —  Daniel Coyle
 
 
 ## Currently Working on  
