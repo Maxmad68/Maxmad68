@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> From now on we live in a world where man has walked on the Moon. It&#39;s not a miracle; we just decided to go.
->  — Tom Hanks
+> Go confidently in the direction of your dreams. Live the life you&#39;ve imagined. As you simplify your life, the laws of the universe will be simpler.
+>  — Henry David Thoreau
 
 
 ## Currently Working on  
