@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Go confidently in the direction of your dreams. Live the life you&#39;ve imagined. As you simplify your life, the laws of the universe will be simpler.
->  — Henry David Thoreau
+> Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.
+>  — Zaha Hadid
 
 
 ## Currently Working on  
