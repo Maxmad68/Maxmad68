@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.
->  — Zaha Hadid
+> Not every day is going to offer us a chance to save somebody&#39;s life, but every day offers us an opportunity to affect one.
+>  — Mark Bezos
 
 
 ## Currently Working on  
