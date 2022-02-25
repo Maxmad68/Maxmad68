@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> People who are crazy enough to think they can change the world, are the ones who do.
->  — Apple Computers
+> By failing to prepare, you are preparing to fail.
+>  — Benjamin Franklin
 
 
 ## Currently Working on  
