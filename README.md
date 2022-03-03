@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Don&#39;t be tempted to break momentum-work through it.
->  — Lorii Myers
+> You make a living by what you earn; you make a life by what you give.
+>  — Winston Churchill
 
 
 ## Currently Working on  
