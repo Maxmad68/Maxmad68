@@ -7,7 +7,7 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You make a living by what you earn; you make a life by what you give.
+> Let our advance worrying become advance thinking and planning.
 >  — Winston Churchill
 
 
