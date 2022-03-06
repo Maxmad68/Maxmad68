@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> When you win, say nothing. When you lose, say less.
->  — Paul Brown
+> Your life does not get better by chance. It gets better by change.
+>  — Jim Rohn
 
 
 ## Currently Working on  
