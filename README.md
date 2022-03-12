@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Luck is a dividend of sweat. The more you sweat, the luckier you get
->  — Ray Kroc
+> Great things are done by a series of small things brought together.
+>  — Vincent Van Gogh
 
 
 ## Currently Working on  
