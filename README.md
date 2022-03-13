@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Great things are done by a series of small things brought together.
->  — Vincent Van Gogh
+> If you cannot do great things, do small things in a great way.
+>  — Napoleon Hill
 
 
 ## Currently Working on  
