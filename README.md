@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Your overnight success story is always a result of everything you have done in your life until that moment.
->  — Bel Pesce
+> The real winners in life are the people who look at every situation with an expectation that they can make it work or make it better
+>  — Barbara Pletcher
 
 
 ## Currently Working on  
