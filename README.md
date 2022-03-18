@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Climb the mountains and get their good tidings. Nature&#39;s peace will flow into you as sunshine flows into trees. The winds will blow their own freshness into you, and the storms their energy, while cares will drop away from you like the leaves of Autumn.
->  — John Muir
+> I always advice people - Don&#39;t wait ! Do something when you are young, when you have no responsibilities. Invest time in yourself to have great Experiences that are going to enrich you, then you can&#39;t possibly lose.
+>  — Steve Jobs
 
 
 ## Currently Working on  
