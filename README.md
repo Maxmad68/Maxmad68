@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You gotta commit. You&#39;ve gotta go out there and improvise and you&#39;ve gotta be completely unafraid to die. You&#39;ve got to be able to take a chance to die. And you have to die lots. You have to die all the time.
->  — Bill Murray
+> Stop complaining. Start creating.
+>  — Dale Patridge
 
 
 ## Currently Working on  
@@ -63,6 +63,10 @@ Aviation enthusiast, and pilot in my free time ✈️.
   <tr>
     <td><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/java-original-wordmark.svg" alt="MySQL" height="50" /></td>
     <td><b>Java</b></td>
+  </tr>
+  <tr>
+    <td><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/cplusplus-original.svg" alt="C#" height="50" /></td>
+    <td><b>C++</b></td>
   </tr>
   <tr>
     <td><img style="margin: 10px" src="https://upload.wikimedia.org/wikipedia/commons/thumb/c/cf/Lua-Logo.svg/1200px-Lua-Logo.svg.png" alt="Lua" height="50" /></td>
