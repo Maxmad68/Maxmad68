@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Your fears, your critics, your heroes, your villains: They are fictions you perceive as reality. Choose to see through them. Choose to let them go.
->  — Isaac Lidsky
+> When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.
+>  — Jean Shinoda Bolen
 
 
 ## Currently Working on  
