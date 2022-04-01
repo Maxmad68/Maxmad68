@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.
->  — Jean Shinoda Bolen
+> You defeated me But you won&#39;t defeat me again Because you have grown all you can grow.. But I am still growing (about Mount Everest).
+>  — Edmund Hillary
 
 
 ## Currently Working on  
