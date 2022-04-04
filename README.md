@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Once a man has made a commitment to a way of life, he puts the greatest strength in the world behind him. It&#39;s something we call heart power. Once a man has made his commitment, nothing will stop him short of success.
->  — Vince Lombardi
+> If you respect yourself in stressful situations, it will help you see the positive… It will help you see the message in the mess.
+>  — Steve Maraboli
 
 
 ## Currently Working on  
