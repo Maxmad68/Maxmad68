@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you respect yourself in stressful situations, it will help you see the positive… It will help you see the message in the mess.
->  — Steve Maraboli
+> We don&#39;t have to do all of it alone. We were never meant to.
+>  — Brene Brown
 
 
 ## Currently Working on  
