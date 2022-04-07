@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Winning isn&#39;t everything.. It&#39;s the only thing.
->  — Vincent van Gogh
+> Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.
+>  — Zaha Hadid
 
 
 ## Currently Working on  
