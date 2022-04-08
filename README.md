@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.
->  — Zaha Hadid
+> When I was a little kid, I was really scared of the dark. But then I came to understand, dark just means the absence of photons in the visible wavelength 400 to 700 nanometers. Then I thought, well it&#39;s really silly to be afraid of a lack of photons. Then I wasn&#39;t afraid of the dark anymore after that.
+>  — Elon Musk
 
 
 ## Currently Working on  
