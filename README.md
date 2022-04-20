@@ -7,18 +7,14 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Think in terms of opportunities and solutions instead of problems, disappointment, and failure.
->  — Lorii Myers
+> Stop creating a life that you need a vacation from. Instead move to where you want to live, do what you want to do, start what you want to start and create the life you want today. This isn&#39;t rehearsal people. This is YOUR life.
+>  — Dale Patridge
 
 
 ## Currently Working on  
   
 
 - 📱iOS App: [MasterTrip](https://mastertrip.madrau.fr)  
-  
-
-- 💻 OCR in C  
-
 
 - ⌨️ Rewriting [iBake](https://github.com/Maxmad68/iBake)  
   
