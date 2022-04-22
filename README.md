@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Limitations are like mirages created by your own mind. When you realise that limitation do not exist, those around you will also feel it and allow you inside their space.
->  — Stephen Richards
+> It wasn&#39;t raining when Noah built the ark..
+>  — Howard Ruff
 
 
 ## Currently Working on  
