@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> An aspirational diet will have you dreaming of success; but it&#39;s the attachment of expectations and tangible goals that feeds the desire, persistence, and fortitude required to make the win.
->  — Lorii Myers
+> Not every day is going to offer us a chance to save somebody&#39;s life, but every day offers us an opportunity to affect one.
+>  — Mark Bezos
 
 
 ## Currently Working on  
