@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Not every day is going to offer us a chance to save somebody&#39;s life, but every day offers us an opportunity to affect one.
->  — Mark Bezos
+> Do not be afraid to give up the good for the great.
+>  — Kenny Rogers
 
 
 ## Currently Working on  
