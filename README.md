@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Do not be afraid to give up the good for the great.
->  — Kenny Rogers
+> Those who know how to win are much more numerous than those who know how to make proper use of their victories
+>  — Polybius
 
 
 ## Currently Working on  
