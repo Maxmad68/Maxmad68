@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Those who know how to win are much more numerous than those who know how to make proper use of their victories
->  — Polybius
+> Vision without action is daydream. Action without vision is nightmare..
+>  — Japanese Proverb
 
 
 ## Currently Working on  
