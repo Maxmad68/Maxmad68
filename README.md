@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The real opportunity for success lies within the person and not in the job.
->  — Zig Ziglar
+> We lose ourselves in the things we love. We find ourselves there, too.
+>  — Dale Patridge
 
 
 ## Currently Working on  
