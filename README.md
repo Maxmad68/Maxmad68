@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It is easy to sit up and take notice, What is difficult is getting up and taking action.
->  — Honore de Balzac
+> You should never view your challenges as a disadvantage. Instead, it&#39;s important for you to understand that your experience facing and overcoming adversity is actually one of your biggest advantages.
+>  — Michelle Obama
 
 
 ## Currently Working on  
