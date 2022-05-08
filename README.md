@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> An aspirational diet will have you dreaming of success; but it&#39;s the attachment of expectations and tangible goals that feeds the desire, persistence, and fortitude required to make the win.
->  — Lorii Myers
+> Don&#39;t use all-or-nothing thinking. Take each day as its own day, and don&#39;t worry about it if you mess up one day. The most important thing you can do is just get back up on the horse.
+>  — Henry Cloud
 
 
 ## Currently Working on  
