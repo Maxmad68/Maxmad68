@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you are born poor, it is not your mistake. But if you die poor it is your mistake.
->  — Bill Gates
+> If you don&#39;t have confidence, you&#39;ll always find a way not to win
+>  — Carl Lewis
 
 
 ## Currently Working on  
