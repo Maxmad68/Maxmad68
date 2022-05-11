@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you don&#39;t have confidence, you&#39;ll always find a way not to win
->  — Carl Lewis
+> We don&#39;t have to do all of it alone. We were never meant to.
+>  — Brene Brown
 
 
 ## Currently Working on  
