@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Remove the temptation to settle for anything short of what you deserve.
->  — Lorii Myers
+> Winners lose much more often than losers. So if you keep losing but you&#39;re still trying, keep it up! You.. Re right on track.
+>  — Matthew Keith Groves
 
 
 ## Currently Working on  
