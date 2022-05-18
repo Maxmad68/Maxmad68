@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Winners lose much more often than losers. So if you keep losing but you&#39;re still trying, keep it up! You.. Re right on track.
->  — Matthew Keith Groves
+> The determination to win is the better part of winning.
+>  — Daisaku Ikeda
 
 
 ## Currently Working on  
