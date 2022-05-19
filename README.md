@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The determination to win is the better part of winning.
->  — Daisaku Ikeda
+> Not every day is going to offer us a chance to save somebody&#39;s life, but every day offers us an opportunity to affect one.
+>  — Mark Bezos
 
 
 ## Currently Working on  
