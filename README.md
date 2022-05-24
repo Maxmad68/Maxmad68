@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Ignition (n): The motivational process that occurs when your identity becomes linked to a long-term vision of your future. Triggers significant amounts of unconscious energy; usually marked by the realization: That is who I want to be.
->  —  Daniel Coyle
+> Your life does not get better by chance. It gets better by change.
+>  — Jim Rohn
 
 
 ## Currently Working on  
