@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Your life does not get better by chance. It gets better by change.
->  — Jim Rohn
+> Sometimes you climb out of bed in the morning and you think, I&#39;m not going to make it, but you laugh inside - remembering all the times you&#39;ve felt that way.
+>  — Charles Bukowski
 
 
 ## Currently Working on  
