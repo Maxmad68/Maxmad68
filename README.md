@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Sometimes you climb out of bed in the morning and you think, I&#39;m not going to make it, but you laugh inside - remembering all the times you&#39;ve felt that way.
->  — Charles Bukowski
+> Vision without action is daydream. Action without vision is nightmare..
+>  — Japanese Proverb
 
 
 ## Currently Working on  
