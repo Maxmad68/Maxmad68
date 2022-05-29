@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Vision without action is daydream. Action without vision is nightmare..
->  — Japanese Proverb
+> There&#39;s such a thin line between winning and losing.
+>  — John R. Tunis
 
 
 ## Currently Working on  
