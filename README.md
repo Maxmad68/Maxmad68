@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> There&#39;s such a thin line between winning and losing.
->  — John R. Tunis
+> When there is no distraction, there is clarity.
+>  — Lorii Myers
 
 
 ## Currently Working on  
