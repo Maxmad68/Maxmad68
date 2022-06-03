@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> We lose ourselves in the things we love. We find ourselves there, too.
->  — Dale Patridge
+> Don&#39;t be tempted to break momentum-work through it.
+>  — Lorii Myers
 
 
 ## Currently Working on  
