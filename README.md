@@ -7,7 +7,7 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Don&#39;t be tempted to break momentum-work through it.
+> Keep a positive mind. Remember, a failed attempt doesn&#39;t make you a failure-giving up does.
 >  — Lorii Myers
 
 
