@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Keep a positive mind. Remember, a failed attempt doesn&#39;t make you a failure-giving up does.
->  — Lorii Myers
+> Time to improve is limited. The clock is always on and doesn&#39;t care if you don&#39;t feel like it. Someone else does and they&#39;re passing you by.
+>  — William James Moore
 
 
 ## Currently Working on  
