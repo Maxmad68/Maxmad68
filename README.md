@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Keep on going and the chances are you will stumble on something, perhaps when you are least expecting it. I have never heard of anyone stumbling on something sitting down.
->  — Charles F. Kettering
+> Life is like a camera: just focus on what is important, capture good times, develop from negative, and if things do not work out, take another shot!
+>  — Daireth Winehouse
 
 
 ## Currently Working on  
