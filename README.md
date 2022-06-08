@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Life is like a camera: just focus on what is important, capture good times, develop from negative, and if things do not work out, take another shot!
->  — Daireth Winehouse
+> If you like what you do, and you&#39;re lucky enough to be good at it, do it for that reason.
+>  — Phil Grimshaw
 
 
 ## Currently Working on  
