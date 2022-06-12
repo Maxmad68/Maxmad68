@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Failure is the condiment that gives success its flavor.
->  — Truman Capote
+> A loser doesn&#39;t know what he&#39;ll do if he loses, but talks about what he&#39;ll do if he wins, and a winner doesn&#39;t talk about what he&#39;ll do if he wins, but knows what he&#39;ll do if he loses.
+>  — 
 
 
 ## Currently Working on  
