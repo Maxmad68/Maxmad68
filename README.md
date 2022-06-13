@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> A loser doesn&#39;t know what he&#39;ll do if he loses, but talks about what he&#39;ll do if he wins, and a winner doesn&#39;t talk about what he&#39;ll do if he wins, but knows what he&#39;ll do if he loses.
->  — 
+> Sustenance! Your health is always the best prescription.
+>  — Lorii Myers
 
 
 ## Currently Working on  
