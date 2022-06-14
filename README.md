@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Sustenance! Your health is always the best prescription.
->  — Lorii Myers
+> I always advice people - Don&#39;t wait ! Do something when you are young, when you have no responsibilities. Invest time in yourself to have great Experiences that are going to enrich you, then you can&#39;t possibly lose.
+>  — Steve Jobs
 
 
 ## Currently Working on  
