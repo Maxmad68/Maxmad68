@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.
->  — Zaha Hadid
+> Named must your fear be before banish it you can.
+>  — Yoda
 
 
 ## Currently Working on  
