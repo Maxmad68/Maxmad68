@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Named must your fear be before banish it you can.
->  — Yoda
+> People rise to the occasion without hesitation when they feel inspired and challenged.
+>  — Lorii Myers
 
 
 ## Currently Working on  
