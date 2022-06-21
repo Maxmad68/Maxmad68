@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> People rise to the occasion without hesitation when they feel inspired and challenged.
->  — Lorii Myers
+> What you do speaks so loudly that I cannot hear what you say.
+>  — Ralph Waldo Emerson
 
 
 ## Currently Working on  
