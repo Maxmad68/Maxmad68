@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> What you do speaks so loudly that I cannot hear what you say.
->  — Ralph Waldo Emerson
+> You will never win if you never begin.
+>  — Helen Rowland
 
 
 ## Currently Working on  
