@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> People who are crazy enough to think they can change the world, are the ones who do.
->  — Apple Computers
+> Each player must accept the cards life deals him or her: but once they are in hand, he or she alone must decide how to play the cards in order to win the game.
+>  — Voltaire
 
 
 ## Currently Working on  
