@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Some men see things as they are and say why.. I dream things that never were and say why not.
->  — George Bernard Shaw
+> You must be the change you want to see in the world..
+>  — M.K. Gandhi
 
 
 ## Currently Working on  
