@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Named must your fear be before banish it you can.
->  — Yoda
+> When there is no distraction, there is clarity.
+>  — Lorii Myers
 
 
 ## Currently Working on  
