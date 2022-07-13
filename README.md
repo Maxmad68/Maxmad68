@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Perfection is not attainable, but if we chase perfection we can catch excellence..
->  — Vince Lombardi
+> It is easy to sit up and take notice, What is difficult is getting up and taking action.
+>  — Honore de Balzac
 
 
 ## Currently Working on  
