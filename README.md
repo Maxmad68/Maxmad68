@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Let go of who you think you&#39;re supposed to be; embrace who you are.
->  — Brene Brown
+> Remember that you are very special, no one can play your role better than you.
+>  — Damayanti Patra
 
 
 ## Currently Working on  
