@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> I know for sure that what we dwell on is who we become.
->  — Oprah Winfrey
+> It isn&#39;t the mountains ahead to climb that wear you out; it&#39;s the pebble in your shoe.
+>  — Mohamad Ali
 
 
 ## Currently Working on  
