@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It isn&#39;t the mountains ahead to climb that wear you out; it&#39;s the pebble in your shoe.
->  — Mohamad Ali
+> Never waste your time trying to explain who you are to people who are committed to misunderstanding you.
+>  — Dream Hampton
 
 
 ## Currently Working on  
