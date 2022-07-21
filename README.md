@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Never waste your time trying to explain who you are to people who are committed to misunderstanding you.
->  — Dream Hampton
+> A quitter never wins and a winner never quits
+>  — Napoleon Hill
 
 
 ## Currently Working on  
