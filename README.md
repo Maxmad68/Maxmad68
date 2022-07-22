@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> A quitter never wins and a winner never quits
->  — Napoleon Hill
+> Sometimes the bravest and most important thing you can do is just show up.
+>  — Brene Brown
 
 
 ## Currently Working on  
