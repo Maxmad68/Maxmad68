@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Time to improve is limited. The clock is always on and doesn&#39;t care if you don&#39;t feel like it. Someone else does and they&#39;re passing you by.
->  — William James Moore
+> Don&#39;t be tempted to break momentum-work through it.
+>  — Lorii Myers
 
 
 ## Currently Working on  
