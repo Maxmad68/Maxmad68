@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Some men see things as they are and say why.. I dream things that never were and say why not.
->  — George Bernard Shaw
+> Perfection is not attainable, but if we chase perfection we can catch excellence..
+>  — Vince Lombardi
 
 
 ## Currently Working on  
