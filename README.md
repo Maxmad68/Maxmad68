@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Perfection is not attainable, but if we chase perfection we can catch excellence..
->  — Vince Lombardi
+> Winning is nice if you don&#39;t lose your integrity in the process.
+>  — Arnold Horshak
 
 
 ## Currently Working on  
