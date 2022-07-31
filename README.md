@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you have dreams it is your responsibility to make them happen.
->  — Bel Pesce
+> Where there is ruin, there is hope for a treasure.
+>  — Rumi
 
 
 ## Currently Working on  
