@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You are very powerful, provided you know how powerful you are.
->  — Yogi Bhajan
+> Beyond a certain point there is no return. This point has to be reached.
+>  — Franz Kafka
 
 
 ## Currently Working on  
