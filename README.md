@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It isn&#39;t what you have, or who you are, or where you are, or what you are doing that makes you happy or unhappy. It is what you think about.
->  — Dale Carnegie
+> Many of life&#39;s failures are experienced by people who did not realize how close they were to success when they gave up.
+>  — Thomas Edison
 
 
 ## Currently Working on  
