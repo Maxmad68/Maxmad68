@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> A man who has no imagination has no wings.
->  — Mohamad Ali
+> We don&#39;t have to do all of it alone. We were never meant to.
+>  — Brene Brown
 
 
 ## Currently Working on  
