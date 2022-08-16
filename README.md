@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Find a purpose in life so big it will challenge every capacity to be at your best.
->  — David O. McKay
+> Do the best you can until you know better. Then when you know better, do better.
+>  — Maya Angelou
 
 
 ## Currently Working on  
