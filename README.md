@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> An aspirational diet will have you dreaming of success; but it&#39;s the attachment of expectations and tangible goals that feeds the desire, persistence, and fortitude required to make the win.
->  — Lorii Myers
+> You must be the change you want to see in the world..
+>  — M.K. Gandhi
 
 
 ## Currently Working on  
