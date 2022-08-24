@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You must be the change you want to see in the world..
->  — M.K. Gandhi
+> You make a living by what you earn; you make a life by what you give.
+>  — Winston Churchill
 
 
 ## Currently Working on  
