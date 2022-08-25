@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You make a living by what you earn; you make a life by what you give.
->  — Winston Churchill
+> From now on we live in a world where man has walked on the Moon. It&#39;s not a miracle; we just decided to go.
+>  — Tom Hanks
 
 
 ## Currently Working on  
