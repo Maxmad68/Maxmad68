@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Meaning is something you build into your life. You build it out of your own past, out of your affections and loyalties, out of the experience of humankind as it is passed on to you... You are the only one who can put them together into that unique pattern that will be your life.
->  — John Gardner
+> Don&#39;t use all-or-nothing thinking. Take each day as its own day, and don&#39;t worry about it if you mess up one day. The most important thing you can do is just get back up on the horse.
+>  — Henry Cloud
 
 
 ## Currently Working on  
