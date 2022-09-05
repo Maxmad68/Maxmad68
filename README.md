@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Logic will get you from A to B. Imagination will take you everywhere.
->  — Albert Einstein
+> Own 100 percent of your focus. The most challenging of endurance drills will bring you to a level of optimal mental and physical performance.
+>  — Lorii Myers
 
 
 ## Currently Working on  
