@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you&#39;re changing the world, you&#39;re working on important things. You&#39;re excited to get up in the morning.
->  — Larry Page
+> Once a man has made a commitment to a way of life, he puts the greatest strength in the world behind him. It&#39;s something we call heart power. Once a man has made his commitment, nothing will stop him short of success.
+>  — Vince Lombardi
 
 
 ## Currently Working on  
