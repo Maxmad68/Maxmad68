@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Dare to BeWhen a new day begins, dare to smile gratefully. When there is darkness, dare to be the first to shine a light. When there is injustice, dare to be the first to condemn it. When something seems difficult, dare to do it anyway. When life seems to beat you down, dare to fight back. When there seems to be no hope, dare to find some. When you&#39;re feeling tired, dare to keep going. When times are tough, dare to be tougher. When love hurts you, dare to love again. When someone is hurting, dare to help them heal. When another is lost, dare to help them find the way. When a friend falls, dare to be the first to extend a hand. When you cross paths with another, dare to make them smile. When you feel great, dare to help someone else feel great too. When the day has ended, dare to feel as you&#39;ve done your best. Dare to be the best you can. At all times, Dare to be!
->  — Steve Maraboli
+> Keep a positive mind. Remember, a failed attempt doesn&#39;t make you a failure-giving up does.
+>  — Lorii Myers
 
 
 ## Currently Working on  
