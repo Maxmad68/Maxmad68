@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> When I was a little kid, I was really scared of the dark. But then I came to understand, dark just means the absence of photons in the visible wavelength 400 to 700 nanometers. Then I thought, well it&#39;s really silly to be afraid of a lack of photons. Then I wasn&#39;t afraid of the dark anymore after that.
->  — Elon Musk
+> Vulnerability is not winning or losing; it&#39;s having the courage to show up and be seen when we have no control over the outcome.
+>  — Brene Brown
 
 
 ## Currently Working on  
