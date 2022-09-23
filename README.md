@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If we ever stop thinking about the person we want to become, we stop learning and taking risks.
->  — Sally Blount
+> When you win, say nothing. When you lose, say less.
+>  — Paul Brown
 
 
 ## Currently Working on  
