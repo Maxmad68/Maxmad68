@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You must have a positive self perception in order to transcend anything.
->  — Steve Maraboli
+> Effort only fully releases its reward after a person refuses to quit.
+>  — Napoleon Hill
 
 
 ## Currently Working on  
