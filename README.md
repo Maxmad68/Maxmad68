@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Effort only fully releases its reward after a person refuses to quit.
->  — Napoleon Hill
+> The determination to win is the better part of winning.
+>  — Daisaku Ikeda
 
 
 ## Currently Working on  
