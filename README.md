@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The determination to win is the better part of winning.
->  — Daisaku Ikeda
+> He who is not courageous enough to take risks will accomplish nothing in life.
+>  — Mohamad Ali
 
 
 ## Currently Working on  
