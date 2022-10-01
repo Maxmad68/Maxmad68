@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Win any way as long as you can get away with it. Nice guys finish last.
->  — Leo Durocher
+> Winning is not everything, but the effort to win is.
+>  — Zig Ziglar
 
 
 ## Currently Working on  
