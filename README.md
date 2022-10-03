@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Excellence prospers in the absence of excuses.
->  — Lorii Myers
+> When I see people stand fully in their truth, or when I see someone fall down, get back up, and say, &#39;Damn. That really hurt, but this is important to me and I&#39;m going in again&#39;-my gut reaction is, &#39;What a badass.&#39;
+>  — Brene Brown
 
 
 ## Currently Working on  
