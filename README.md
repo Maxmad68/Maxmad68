@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It isn&#39;t the mountains ahead to climb that wear you out; it&#39;s the pebble in your shoe.
->  — Mohamad Ali
+> A successful man is one who can lay a firm foundation with the bricks that others throw at him.
+>  — Sidney Greenberg
 
 
 ## Currently Working on  
