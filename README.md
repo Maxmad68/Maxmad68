@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> We lose ourselves in the things we love. We find ourselves there, too.
->  — Dale Patridge
+> When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.
+>  — Jean Shinoda Bolen
 
 
 ## Currently Working on  
