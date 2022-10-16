@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Vulnerability is not winning or losing; it&#39;s having the courage to show up and be seen when we have no control over the outcome.
->  — Brene Brown
+> Even if you&#39;re on the right track, you&#39;ll get run over if you just sit there..
+>  — Will Rogers
 
 
 ## Currently Working on  
