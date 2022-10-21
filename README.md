@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> At that point where you have decided to upgrade from aspiration to expectation and have begun to visualize an outcome, something incredibly important has happened, you have committed to the process of change.
->  — Lorii Myers
+> If you don&#39;t give up, you still have a chance. And when you are small, you have to be very focused and rely on your brain, not your strength.
+>  — Jack Ma
 
 
 ## Currently Working on  
