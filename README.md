@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Stop complaining. Start creating.
->  — Dale Patridge
+> Think in terms of opportunities and solutions instead of problems, disappointment, and failure.
+>  — Lorii Myers
 
 
 ## Currently Working on  
