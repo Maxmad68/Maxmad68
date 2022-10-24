@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Think in terms of opportunities and solutions instead of problems, disappointment, and failure.
->  — Lorii Myers
+> Don&#39;t count the days; make the days count.
+>  — Mohamad Ali
 
 
 ## Currently Working on  
