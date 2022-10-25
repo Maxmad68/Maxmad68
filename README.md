@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Don&#39;t count the days; make the days count.
->  — Mohamad Ali
+> The journey of a thousand miles begins with one step.
+>  — Lao Tzu
 
 
 ## Currently Working on  
