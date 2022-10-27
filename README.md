@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> What is the one sentence summary of how you change the world? Always work hard on something uncomfortably exciting!
->  — Larry Page
+> If you get up in the morning and think the future is going to be better, it is a bright day. Otherwise, it&#39;s not.
+>  — Elon Musk
 
 
 ## Currently Working on  
