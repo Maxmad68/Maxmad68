@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You gotta commit. You&#39;ve gotta go out there and improvise and you&#39;ve gotta be completely unafraid to die. You&#39;ve got to be able to take a chance to die. And you have to die lots. You have to die all the time.
->  — Bill Murray
+> Winning isn&#39;t everything.. It&#39;s the only thing.
+>  — Vincent van Gogh
 
 
 ## Currently Working on  
