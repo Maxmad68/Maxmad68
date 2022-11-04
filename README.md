@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> A show of confidence raises the bar
->  — Lorii Myers
+> It wasn&#39;t raining when Noah built the ark..
+>  — Howard Ruff
 
 
 ## Currently Working on  
