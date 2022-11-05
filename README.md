@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It wasn&#39;t raining when Noah built the ark..
->  — Howard Ruff
+> Stress is like a pulse, if you have it you are alive.
+>  — Steve Maraboli
 
 
 ## Currently Working on  
