@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Stress is like a pulse, if you have it you are alive.
->  — Steve Maraboli
+> Vulnerability is not winning or losing; it&#39;s having the courage to show up and be seen when we have no control over the outcome.
+>  — Brene Brown
 
 
 ## Currently Working on  
