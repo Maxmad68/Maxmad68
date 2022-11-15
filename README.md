@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It is easy to sit up and take notice, What is difficult is getting up and taking action.
->  — Honore de Balzac
+> I think it&#39;s very important to have a feedback loop, where you&#39;re constantly thinking about what you&#39;ve done and how you could be doing it better. I think that&#39;s the single best piece of advice: constantly think about how you could be doing things better and questioning yourself.
+>  — Elon Musk
 
 
 ## Currently Working on  
