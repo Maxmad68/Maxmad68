@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Do the best you can until you know better. Then when you know better, do better.
->  — Maya Angelou
+> What you do speaks so loudly that I cannot hear what you say.
+>  — Ralph Waldo Emerson
 
 
 ## Currently Working on  
