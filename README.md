@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> From now on we live in a world where man has walked on the Moon. It&#39;s not a miracle; we just decided to go.
->  — Tom Hanks
+> When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.
+>  — Jean Shinoda Bolen
 
 
 ## Currently Working on  
