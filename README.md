@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.
->  — Jean Shinoda Bolen
+> A loser doesn&#39;t know what he&#39;ll do if he loses, but talks about what he&#39;ll do if he wins, and a winner doesn&#39;t talk about what he&#39;ll do if he wins, but knows what he&#39;ll do if he loses.
+>  — 
 
 
 ## Currently Working on  
