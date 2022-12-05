@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> A loser doesn&#39;t know what he&#39;ll do if he loses, but talks about what he&#39;ll do if he wins, and a winner doesn&#39;t talk about what he&#39;ll do if he wins, but knows what he&#39;ll do if he loses.
->  — 
+> You gotta commit. You&#39;ve gotta go out there and improvise and you&#39;ve gotta be completely unafraid to die. You&#39;ve got to be able to take a chance to die. And you have to die lots. You have to die all the time.
+>  — Bill Murray
 
 
 ## Currently Working on  
