@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Once your excuses are gone, you will simply have to settle for being awesome!
->  — Lorii Myers
+> Only a man who knows what it is like to be defeated can reach down to the bottom of his soul and come up with the extra ounce of power it takes to win when the match is even.
+>  — Mohamad Ali
 
 
 ## Currently Working on  
