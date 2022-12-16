@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> People who are crazy enough to think they can change the world, are the ones who do.
->  — Apple Computers
+> What&#39;s the greater risk? Letting go of what people think or letting go of how I feel, what I believe, and who I am?
+>  — Brene Brown
 
 
 ## Currently Working on  
