@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> What&#39;s the greater risk? Letting go of what people think or letting go of how I feel, what I believe, and who I am?
->  — Brene Brown
+> Your overnight success story is always a result of everything you have done in your life until that moment.
+>  — Bel Pesce
 
 
 ## Currently Working on  
