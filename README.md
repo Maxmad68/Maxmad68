@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Your overnight success story is always a result of everything you have done in your life until that moment.
->  — Bel Pesce
+> Your life does not get better by chance. It gets better by change.
+>  — Jim Rohn
 
 
 ## Currently Working on  
