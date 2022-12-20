@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Where there is ruin, there is hope for a treasure.
->  — Rumi
+> Win any way as long as you can get away with it. Nice guys finish last.
+>  — Leo Durocher
 
 
 ## Currently Working on  
