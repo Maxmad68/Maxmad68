@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Plant your own garden and decorate your own soul, instead of waiting for someone to bring you flowers.
->  — Veronica A. Shoffstall
+> Find a purpose in life so big it will challenge every capacity to be at your best.
+>  — David O. McKay
 
 
 ## Currently Working on  
