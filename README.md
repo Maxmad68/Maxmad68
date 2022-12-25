@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Find a purpose in life so big it will challenge every capacity to be at your best.
->  — David O. McKay
+> Let our advance worrying become advance thinking and planning.
+>  — Winston Churchill
 
 
 ## Currently Working on  
