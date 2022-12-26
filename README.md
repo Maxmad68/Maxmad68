@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Let our advance worrying become advance thinking and planning.
->  — Winston Churchill
+> Own 100 percent of your focus. The most challenging of endurance drills will bring you to a level of optimal mental and physical performance.
+>  — Lorii Myers
 
 
 ## Currently Working on  
