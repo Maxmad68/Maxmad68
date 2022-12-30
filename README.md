@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> He who is not courageous enough to take risks will accomplish nothing in life.
->  — Mohamad Ali
+> If I work as hard as I can, I wonder how much I can do in a day?
+>  — Ezra Taft Benson
 
 
 ## Currently Working on  
