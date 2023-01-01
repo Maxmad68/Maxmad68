@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Extend beyond your preconceived limits!
->  — Lorii Myers
+> You must have a positive self perception in order to transcend anything.
+>  — Steve Maraboli
 
 
 ## Currently Working on  
