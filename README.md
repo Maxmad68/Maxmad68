@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> You must have a positive self perception in order to transcend anything.
->  — Steve Maraboli
+> Excellence prospers in the absence of excuses.
+>  — Lorii Myers
 
 
 ## Currently Working on  
