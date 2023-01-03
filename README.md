@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Excellence prospers in the absence of excuses.
->  — Lorii Myers
+> Remember that you are very special, no one can play your role better than you.
+>  — Damayanti Patra
 
 
 ## Currently Working on  
