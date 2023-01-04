@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Remember that you are very special, no one can play your role better than you.
->  — Damayanti Patra
+> Sustenance! Your health is always the best prescription.
+>  — Lorii Myers
 
 
 ## Currently Working on  
