@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Once a man has made a commitment to a way of life, he puts the greatest strength in the world behind him. It&#39;s something we call heart power. Once a man has made his commitment, nothing will stop him short of success.
->  — Vince Lombardi
+> The idea that everyone should slavishly work so they do something inefficiently so they keep their job - that just doesn&#39;t make any sense to me. That can&#39;t be the right answer.
+>  — Larry Page
 
 
 ## Currently Working on  
