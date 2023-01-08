@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The idea that everyone should slavishly work so they do something inefficiently so they keep their job - that just doesn&#39;t make any sense to me. That can&#39;t be the right answer.
->  — Larry Page
+> I know for sure that what we dwell on is who we become.
+>  — Oprah Winfrey
 
 
 ## Currently Working on  
