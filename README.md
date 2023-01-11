@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> A man who has no imagination has no wings.
->  — Mohamad Ali
+> The journey of a thousand miles begins with one step.
+>  — Lao Tzu
 
 
 ## Currently Working on  
