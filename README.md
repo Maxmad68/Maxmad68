@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Winning is nice if you don&#39;t lose your integrity in the process.
->  — Arnold Horshak
+> Winning is not everything, but the effort to win is.
+>  — Zig Ziglar
 
 
 ## Currently Working on  
