@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Winning is not everything, but the effort to win is.
->  — Zig Ziglar
+> Your fears, your critics, your heroes, your villains: They are fictions you perceive as reality. Choose to see through them. Choose to let them go.
+>  — Isaac Lidsky
 
 
 ## Currently Working on  
