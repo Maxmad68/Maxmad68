@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Think in terms of opportunities and solutions instead of problems, disappointment, and failure.
->  — Lorii Myers
+> Great ambition is the passion of a great character. Those endowed with it may perform very good or very bad acts. All depends on the principals which direct them.
+>  — Napoleon Bonaparte
 
 
 ## Currently Working on  
