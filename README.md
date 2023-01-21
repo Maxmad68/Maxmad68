@@ -7,8 +7,11 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Only a man who knows what it is like to be defeated can reach down to the bottom of his soul and come up with the extra ounce of power it takes to win when the match is even.
->  — Mohamad Ali
+> One does not accumulate but eliminate.
+It is not daily increase but daily
+decrease. The height of cultivation
+always runs to simplicity.
+>  — Bruce Lee
 
 
 ## Currently Working on  
