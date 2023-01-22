@@ -7,11 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> One does not accumulate but eliminate.
-It is not daily increase but daily
-decrease. The height of cultivation
-always runs to simplicity.
->  — Bruce Lee
+> Do not worry if you have built your castles in the air. They are where they should be. Now put the foundations under them.
+>  — Henry David Thoreau
 
 
 ## Currently Working on  
