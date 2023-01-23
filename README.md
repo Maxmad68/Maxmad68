@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Do not worry if you have built your castles in the air. They are where they should be. Now put the foundations under them.
->  — Henry David Thoreau
+> Winning is nice if you don&#39;t lose your integrity in the process.
+>  — Arnold Horshak
 
 
 ## Currently Working on  
