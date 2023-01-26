@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> There&#39;s such a thin line between winning and losing.
->  — John R. Tunis
+> Some men see things as they are and say why.. I dream things that never were and say why not.
+>  — George Bernard Shaw
 
 
 ## Currently Working on  
