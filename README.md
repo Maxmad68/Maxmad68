@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> I am an optimist. It does not seem too much use being anything else..
->  — Winston Churchill
+> Stop complaining. Start creating.
+>  — Dale Patridge
 
 
 ## Currently Working on  
