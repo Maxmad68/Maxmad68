@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The real winners in life are the people who look at every situation with an expectation that they can make it work or make it better
->  — Barbara Pletcher
+> Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.
+>  — Christiane Northrup
 
 
 ## Currently Working on  
