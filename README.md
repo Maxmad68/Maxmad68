@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Even if you&#39;re on the right track, you&#39;ll get run over if you just sit there..
->  — Will Rogers
+> Plant your own garden and decorate your own soul, instead of waiting for someone to bring you flowers.
+>  — Veronica A. Shoffstall
 
 
 ## Currently Working on  
