@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Plant your own garden and decorate your own soul, instead of waiting for someone to bring you flowers.
->  — Veronica A. Shoffstall
+> Ideas are these disembodied life forms, they don&#39;t have a form, but they have a will. All they want is to be made manifest. If you can manage to open up your consciousness to an idea of living in a world of abundance, then you can believe that, constantly, ideas are trying to find human collaborators.
+>  — Elizabeth Gilbert
 
 
 ## Currently Working on  
