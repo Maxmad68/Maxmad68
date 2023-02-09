@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Ideas are these disembodied life forms, they don&#39;t have a form, but they have a will. All they want is to be made manifest. If you can manage to open up your consciousness to an idea of living in a world of abundance, then you can believe that, constantly, ideas are trying to find human collaborators.
->  — Elizabeth Gilbert
+> Great ambition is the passion of a great character. Those endowed with it may perform very good or very bad acts. All depends on the principals which direct them.
+>  — Napoleon Bonaparte
 
 
 ## Currently Working on  
