@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Great ambition is the passion of a great character. Those endowed with it may perform very good or very bad acts. All depends on the principals which direct them.
->  — Napoleon Bonaparte
+> Don&#39;t be tempted to break momentum-work through it.
+>  — Lorii Myers
 
 
 ## Currently Working on  
