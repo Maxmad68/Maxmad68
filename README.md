@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Persistence is very important. You should not give up unless you are forced to give up.
->  — Elon Musk
+> If you want to make your dreams come true, the first thing you have to do is wake up.
+>  — J.M. Power
 
 
 ## Currently Working on  
