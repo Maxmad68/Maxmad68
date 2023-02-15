@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you want to make your dreams come true, the first thing you have to do is wake up.
->  — J.M. Power
+> Keep a positive mind. Remember, a failed attempt doesn&#39;t make you a failure-giving up does.
+>  — Lorii Myers
 
 
 ## Currently Working on  
