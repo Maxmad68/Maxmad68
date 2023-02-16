@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Keep a positive mind. Remember, a failed attempt doesn&#39;t make you a failure-giving up does.
->  — Lorii Myers
+> It is easy to sit up and take notice, What is difficult is getting up and taking action.
+>  — Honore de Balzac
 
 
 ## Currently Working on  
