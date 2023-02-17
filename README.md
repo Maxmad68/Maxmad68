@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> It is easy to sit up and take notice, What is difficult is getting up and taking action.
->  — Honore de Balzac
+> If you&#39;re not making mistakes, you&#39;re not taking risks, and that means you&#39;re not going anywhere. The key is to make mistakes faster than the competition, so you have more changes to learn and win.
+>  — John W. Holt, Jr.
 
 
 ## Currently Working on  
