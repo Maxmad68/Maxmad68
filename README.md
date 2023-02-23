@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you cannot do great things, do small things in a great way.
->  — Napoleon Hill
+> Failure is the condiment that gives success its flavor.
+>  — Truman Capote
 
 
 ## Currently Working on  
