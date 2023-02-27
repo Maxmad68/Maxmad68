@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> We are each gifted in a unique and important way. It is our privilege and our adventure to discover our own special light
->  — Mary Dunbar
+> The man who has confidence in himself gains the confidence of others.
+>  — Hasidic Proverb
 
 
 ## Currently Working on  
