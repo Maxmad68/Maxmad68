@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The man who has confidence in himself gains the confidence of others.
->  — Hasidic Proverb
+> It isn&#39;t what you have, or who you are, or where you are, or what you are doing that makes you happy or unhappy. It is what you think about.
+>  — Dale Carnegie
 
 
 ## Currently Working on  
