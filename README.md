@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Stress is like a pulse, if you have it you are alive.
->  — Steve Maraboli
+> Plant your own garden and decorate your own soul, instead of waiting for someone to bring you flowers.
+>  — Veronica A. Shoffstall
 
 
 ## Currently Working on  
