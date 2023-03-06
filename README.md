@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> When a man is an upright contender, only real people are bound to be around; but if he is a downright pretender, then fake people surround and always abound to be found.
->  — Anuj Somany
+> If you&#39;re changing the world, you&#39;re working on important things. You&#39;re excited to get up in the morning.
+>  — Larry Page
 
 
 ## Currently Working on  
