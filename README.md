@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> There&#39;s such a thin line between winning and losing.
->  — John R. Tunis
+> Whether you think you can or think you can&#39;t, you&#39;re right..
+>  — Henry Ford
 
 
 ## Currently Working on  
