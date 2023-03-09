@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Whether you think you can or think you can&#39;t, you&#39;re right..
->  — Henry Ford
+> Err
+>  — or
 
 
 ## Currently Working on  
