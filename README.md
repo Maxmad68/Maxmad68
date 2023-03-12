@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Some men see things as they are and say why.. I dream things that never were and say why not.
->  — George Bernard Shaw
+> Winning is nice if you don&#39;t lose your integrity in the process.
+>  — Arnold Horshak
 
 
 ## Currently Working on  
