@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> I am an optimist. It does not seem too much use being anything else..
->  — Winston Churchill
+> If you like what you do, and you&#39;re lucky enough to be good at it, do it for that reason.
+>  — Phil Grimshaw
 
 
 ## Currently Working on  
