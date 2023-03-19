@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you like what you do, and you&#39;re lucky enough to be good at it, do it for that reason.
->  — Phil Grimshaw
+> Sustenance! Your health is always the best prescription.
+>  — Lorii Myers
 
 
 ## Currently Working on  
