@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Sustenance! Your health is always the best prescription.
->  — Lorii Myers
+> Your overnight success story is always a result of everything you have done in your life until that moment.
+>  — Bel Pesce
 
 
 ## Currently Working on  
