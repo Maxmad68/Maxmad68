@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Beyond a certain point there is no return. This point has to be reached.
->  — Franz Kafka
+> When there is no distraction, there is clarity.
+>  — Lorii Myers
 
 
 ## Currently Working on  
