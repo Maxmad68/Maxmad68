@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Do not let what you cannot do interfere with what you can do.
->  — John Wooden
+> Do the best you can until you know better. Then when you know better, do better.
+>  — Maya Angelou
 
 
 ## Currently Working on  
