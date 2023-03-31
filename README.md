@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Don&#39;t be afraid of losing, be afraid of playing a game and not learning something.
->  — Dan Heisman
+> Vulnerability is not winning or losing; it&#39;s having the courage to show up and be seen when we have no control over the outcome.
+>  — Brene Brown
 
 
 ## Currently Working on  
