@@ -9,7 +9,7 @@ var  options = {
   url: 'https://quotes.rest/qod?language=en',
   json: true,
   headers: {
-    'Authorization': 'Bearer LyvztM4429E0spQtoufjYEfNKX0UZEE2PcoX0QGx'
+    'Authorization': 'Bearer ' + process.env.apiKey
   }
 };
 
