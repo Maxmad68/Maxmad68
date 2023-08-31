@@ -50,7 +50,8 @@
     "uri-js": "^4.4.0",
     "uuid": "^3.4.0",
     "verror": "^1.10.0",
-    "mustache": "^4.2.0"
+    "mustache": "^4.2.0",
+    "request": "^2.88.2"
   },
   "devDependencies": {},
   "scripts": {
