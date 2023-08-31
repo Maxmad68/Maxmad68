@@ -7,7 +7,10 @@ const MUSTACHE_MAIN_DIR = './main.mustache';
 
 var  options = {
   url: 'https://quotes.rest/qod?language=en',
-  json: true
+  json: true,
+  headers: {
+    'Authorization': 'Bearer LyvztM4429E0spQtoufjYEfNKX0UZEE2PcoX0QGx'
+  }
 };
 
 
