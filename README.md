@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you want to make your dreams come true, the first thing you have to do is wake up.
->  — J.M. Power
+> Life is 10% what happens to us and 90% how we react to it.
+>  — Dennis P. Kimbro
 
 
 ## Currently Working on  
