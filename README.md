@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Life is 10% what happens to us and 90% how we react to it.
->  — Dennis P. Kimbro
+> Winners lose much more often than losers. So if you keep losing but you&#39;re still trying, keep it up! You.. Re right on track.
+>  — Matthew Keith Groves
 
 
 ## Currently Working on  
