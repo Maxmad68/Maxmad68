@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you cannot do great things, do small things in a great way.
->  — Napoleon Hill
+> Perfection is not attainable, but if we chase perfection we can catch excellence..
+>  — Vince Lombardi
 
 
 ## Currently Working on  
