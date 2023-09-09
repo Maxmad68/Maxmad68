@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Some men see things as they are and say why.. I dream things that never were and say why not.
->  — George Bernard Shaw
+> The man who has confidence in himself gains the confidence of others.
+>  — Hasidic Proverb
 
 
 ## Currently Working on  
