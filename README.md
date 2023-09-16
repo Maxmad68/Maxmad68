@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Life is like a camera: just focus on what is important, capture good times, develop from negative, and if things do not work out, take another shot!
->  — Daireth Winehouse
+> The determination to win is the better part of winning.
+>  — Daisaku Ikeda
 
 
 ## Currently Working on  
