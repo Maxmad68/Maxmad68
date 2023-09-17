@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> The determination to win is the better part of winning.
->  — Daisaku Ikeda
+> Great leadership does not mean running away from reality. Sometimes the hard truths might just demoralize the company, but at other times sharing difficulties can inspire people to take action that will make the situation better.
+>  — John Kotter
 
 
 ## Currently Working on  
