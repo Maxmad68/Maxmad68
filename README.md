@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Winning is nice if you don&#39;t lose your integrity in the process.
->  — Arnold Horshak
+> Failure is the condiment that gives success its flavor.
+>  — Truman Capote
 
 
 ## Currently Working on  
