@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Failure is the condiment that gives success its flavor.
->  — Truman Capote
+> Named must your fear be before banish it you can.
+>  — Yoda
 
 
 ## Currently Working on  
