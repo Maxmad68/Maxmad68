@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Named must your fear be before banish it you can.
->  — Yoda
+> Logic will get you from A to B. Imagination will take you everywhere.
+>  — Albert Einstein
 
 
 ## Currently Working on  
