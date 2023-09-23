@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Logic will get you from A to B. Imagination will take you everywhere.
->  — Albert Einstein
+> If your actions inspire others to dream more, learn more, do more and become more, you are a leader.
+>  — John Quincy Adams
 
 
 ## Currently Working on  
