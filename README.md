@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If your actions inspire others to dream more, learn more, do more and become more, you are a leader.
->  — John Quincy Adams
+> Your time is limited, so don&#39;t waste it living someone else&#39;s life. Don&#39;t be trapped by dogma - which is living with the results of other people&#39;s thinking. Don&#39;t let the noise of other&#39;s opinions drown out your own inner voice. And most important, have the courage to follow your heart and intuition. They somehow already know what you truly want to become. Everything else is secondary.
+>  — Steve Jobs
 
 
 ## Currently Working on  
