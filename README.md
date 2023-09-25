@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Your time is limited, so don&#39;t waste it living someone else&#39;s life. Don&#39;t be trapped by dogma - which is living with the results of other people&#39;s thinking. Don&#39;t let the noise of other&#39;s opinions drown out your own inner voice. And most important, have the courage to follow your heart and intuition. They somehow already know what you truly want to become. Everything else is secondary.
->  — Steve Jobs
+> Each player must accept the cards life deals him or her: but once they are in hand, he or she alone must decide how to play the cards in order to win the game.
+>  — Voltaire
 
 
 ## Currently Working on  
