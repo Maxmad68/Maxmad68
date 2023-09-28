@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> There&#39;s such a thin line between winning and losing.
->  — John R. Tunis
+> Luck is a dividend of sweat. The more you sweat, the luckier you get
+>  — Ray Kroc
 
 
 ## Currently Working on  
