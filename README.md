@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Luck is a dividend of sweat. The more you sweat, the luckier you get
->  — Ray Kroc
+> If you want to test your memory, try to recall what you were worrying about one year ago today.
+>  — E. Joseph Cossman
 
 
 ## Currently Working on  
