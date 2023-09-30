@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> If you want to test your memory, try to recall what you were worrying about one year ago today.
->  — E. Joseph Cossman
+> Let our advance worrying become advance thinking and planning.
+>  — Winston Churchill
 
 
 ## Currently Working on  
