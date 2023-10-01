@@ -7,8 +7,8 @@ Aviation enthusiast, and pilot in my free time ✈️.
 
 #### Quote of the day <a href="#quoteexp">*</a>
 
-> Let our advance worrying become advance thinking and planning.
->  — Winston Churchill
+> Think ahead. Don&#39;t let day-to-day operations drive out planning.
+>  — Donald Rumsfeld
 
 
 ## Currently Working on  
